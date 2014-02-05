@@ -2,7 +2,7 @@
 
 ## By: Dave Stanton
 
-Then I just start typing my story. Making some edits here. This story is so much better now.
+Then I just start typing my story. Making some edits here. This story is better now.
 
 * point
 * point
