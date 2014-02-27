@@ -37,11 +37,9 @@ His goal for those five episodes was basic.
 
 “I wanted to go from the hospital to doing stand up on TV. That would be a big leap.” 
 
-He felt having this goal was realistic and smart. Instead of gunning for a nationwide tour or starring on a sitcom, he had his eyes on Conan. With this in mind, he started brainstorming the steps he would have to get to achieve his goal. EXAMPLES
+He felt having this goal was realistic and smart. Instead of gunning for a nationwide tour or starring on a sitcom, he had his eyes on Conan. With this in mind, he started brainstorming the steps he would have to get to achieve his goal. EXAMPLES By the time he was discharged, he basically wrote the first six episodes with a focus on him going from mania to being on TV. 
 
-"Basically I wrote it while I was in the hospital -- the first six episodes."  
-
-The first six were basically mania to being on TV. The second six were focused on Brody coming out of depression. 
+The second six were focused on Brody coming out of depression. 
 
 "I didn’t really see it coming. It was bad. It was a number of factors that went into that: medication, moving to Hollywood. I just didn’t see it coming, so it really threw me for a loop. So my thing was why don’t we make it going from depression to doing my half hour special. Instead of doing Conan, now I’ve raised the stakes." 
 
