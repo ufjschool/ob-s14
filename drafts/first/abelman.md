@@ -3,34 +3,33 @@
 ## By: Devon Abelman 
 
 
-He didn't get in an accident. Nothing had to be operated on. No apparent injuries could be seen on his body. But there he was lying in a hopsital bed in UCLA. But this wasn't the intensive care unit. This was the psych ward, and no one was more in shock than Brody himself. 
+He didn't get in an accident. Nothing had to be operated on. No apparent injuries could be seen on his body. But there he was lying in a hospital bed in UCLA. But this wasn't the intensive care unit. This was the psych ward, and no one was more in shock than Brody himself. 
 
-"I never, ever, ever thought I would end up in a hospital, never," he said. "I didn’t even know that kind of stuff happened." 
+"I never, ever, ever thought I would end up in a hospital, never," he remarked in a phone interview. "I didn’t even know that kind of stuff happened." 
 
-From the outside, life for Brody seemed great. He wasn't just an audience warm up comedian anymore. Now he was a guy about to have his own show on HBO. TMZ just hired him to be a host. His comedy was taking him to festivals all around the country and even to Ireland. His career was pointing upwards. 
+From the outside, life for Brody Stevens seemed great. He wasn't just an audience warm up comedian anymore. Now he was a guy about to have his own show on HBO. TMZ just hired him to be a host. His comedy was taking him to festivals all around the country and even to Ireland. His career was pointing upwards. 
 
-“I was on a streak," Brody said. "I was on a hot streak, and I was feeling good."
+“I was on a streak," Brody revealed. "I was on a hot streak, and I was feeling good."
 
-
-BACKGROUND/ MEDICATIONS. He was feeling good enough that he thought he didn't need his medicaiton anymore. Then he got sick and was put on antibotics. After that, he said he spiraled out of control, and everyone knew about it. His manic episode was out in the world for everyone to see with the help of Twitter. He said he was going nuts. EXAMPLES 
+The 43-year-old, born Steven Brody, grappled with anxiety for --- years before going on medication to control it. But in 2011, medication no longer seemed necessary to him. Stopping abruptly sent Brody into a downward spiral, and everyone knew about it. His manic episode was out in the world for everyone to see with the help of Twitter. He said he was going nuts. EXAMPLES 
 
 
 "When I was going manic, because I was on Twitter, everybody kind of knew my business." 
 
-His friend, actor Zach Galifinakis, stepped in after getting strange voicemails from his friend. 
+His friend, actor Zach Galifianakis, stepped in after getting strange voicemails from his friend. 
 
-Detained 
+Detained and involuntarily committed 
   
   Where they met 
   Extra in movies 
   
-Zach was also the driing force behind Brody's new HBO show. For years, Zach told Brody that he was interested in doing a show about him. 
+Zach was also the driving force behind Brody's new HBO show. For years, Zach told Brody that he was interested in doing a show about him. 
 
-“He always thought it was funny the way I interacted with my sister," Brody explained, " and ge thought my mind was kind of interesting." 
+“He always thought it was funny the way I interacted with my sister," Brody explained, " and he thought my mind was kind of interesting." 
 
-So they taped a pilot. The focus was on Brody and his sister Stephanie reconciling for his mom's 80th birthday. Later they pitched it to Comedy Central, HBO and Adult Swim, and all networks liked it. HBO eventually ordered five more episodes, giving Brody two months to plan before taping. 
+So they taped a pilot. The documentary-style show focus was on Brody and his sister, Stephanie, reconciling for his mom's 80th birthday. Later they pitched it to Comedy Central, HBO and Adult Swim, and all networks liked it. HBO eventually ordered five more episodes, giving Brody two months to plan before taping. 
 
-However, in these two months, he ended up in that hospital bed and the focus of the show shifted. NUMBER of days in the pysch ward was not enough to take the show away from him or his motivation. 
+However, in these two months, he ended up in that hospital bed and the focus of the show shifted. Seventeen days in the psych ward was not enough to take the show away from him or his motivation. 
 
 "My friends are saying it’s like of rock 'n' roll. It’s kind of funny. It’s not funny, but it is a little bit. Nobody got hurt. It could have been bad. But that’s when they kind of started putting it in my head." 
 
@@ -42,32 +41,28 @@ He felt having this goal was realistic and smart. Instead of gunning for a natio
 
 "Basically I wrote it while I was in the hospital -- the first six episodes."  
 
-the first six was basically mania to being on TV. the second six was coming out of depression. I didn’t really see it coming. It was bad. It was a number of factors that went into that: medication, moving to Hollywood. I just didn’t see it coming, so it really threw me for a loop. So my thing was why don’t we make it going from depression to doing my half hour special. Instead of doing Conan, now I’ve raised the stakes. 
+The first six were basically mania to being on TV. The second six were focused on Brody coming out of depression. 
 
-I always wanted the show to be behind the scenes, to break that wall down.  
+"I didn’t really see it coming. It was bad. It was a number of factors that went into that: medication, moving to Hollywood. I just didn’t see it coming, so it really threw me for a loop. So my thing was why don’t we make it going from depression to doing my half hour special. Instead of doing Conan, now I’ve raised the stakes." 
 
-“It was more about me being honest and being funny. I wanted to be funny, and I wanted to be real. Funny and real. I did not go out of my way to inspire people. I never said this is going to inspire people, this is going to change the world. This needs to be said. I need to make a public service announcement. That wasn’t my intention. I’m glad I inspire people. 
+"I always wanted the show to be behind the scenes, to break that wall down." 
 
-The most feedback is the mental side, family members being sick and anger issues 
-	not his intention but he accepts it and understands where the inspiration comes from 
+Being an inspiration to others was never his intention. He said he never went out of his way to do so. "I never said this is going to inspire people, this is going to change the world. This needs to be said. I need to make a public service announcement." While he was glad he was an inspiration for some, his focus was on his comedy. 
 
-Intention was just to be real 
-
-Surprised him “I didn’t realize it would affect people. 
-
-What strikes viewers most is his positive energy. He exclaims his little catchphrases like "Enjoy it!" "Push and believe." It's his way of keeping the audience engaged. 
-
-His focus on positive energy started in college. While playing baseball at Arizona State University, he learned about visualization and positive thoughts. 
-
-From sports: 
-You can’t blame others. Life is unfair, and it’s not healthy being negative, especially out here in Los Angeles, in Hollywood. A lot of these jobs are based off being a nice guy, bringing people up. 
-
-After college, he moved to Seattle where he did ------ with TAYNA, a -------. 
-
-"He taught me, ‘Hey! Be nice! Be happy!” So that kind of, not validated, maybe it did, my college thing. I just applied what I had learned in college into comedy and what I learned in baseball then it took someone to be like ‘Hey! I’m like that, too.’ I started being positive." 
+“It was more about me being honest and being funny. I wanted to be funny, and I wanted to be real. Funny and real."
 
 
-“I had an issue with my medication. I was all revved up. I was excited about the show coming out. Maybe too much positive energy, who know? So I kind of went off the rails a little bit. Then when I came back, I had to focus on the positive. I kind of had to get myself out of this hole. It wasn’t like oh I’m a nice guy positive energy. I really needed positive energy to get me out of the hole, and I just knew that that kind of stuff works. I just learned that by generating that energy that good stuff can happen. Good things started to happen. I put certain emotions out in the universe and good things happened again.” 
+The most feedback is about mental issues, family members being sick and anger issues. He had no idea his story would effect others. What strikes viewers most is his positive energy despite his obstacles. He exclaims his little catchphrases like "Enjoy it!" "Push and believe." It's his way of keeping the audience engaged -- not to INSPIRE others. 
+
+His focus on positive energy started in college. While playing baseball at Arizona State University, he learned about visualization and positive thoughts. As an athlete, he learned you can't blame others, life is unfair, and it's not healthy to be negative. After graduating, he moved to Seattle where he did public-access TV show with Teina Manu, a -------. 
+
+"He taught me, ‘Hey! Be nice! Be happy!” So that kind of, not validated, maybe it did, my college thing. I just applied what I had learned in college into comedy and what I learned in baseball, then it took someone to be like, ‘Hey! I’m like that, too.’ I started being positive." 
+
+Having that positive energy was crucial to his recovery after his stint in the psych ward. Knowing it helped him in the past, he knew had to focus on the positive to be himself anymore. However, now it was no longer part of his act.
+
+"I kind of had to get myself out of this hole. It wasn’t like, 'Oh, I’m a nice guy, positive energy.' I really needed positive energy to get me out of the hole. I just learned that by generating that energy that good stuff can happen. Good things started to happen. I put certain emotions out in the universe, and good things happened again.” 
+
+His show TKTKTKTKTK 
 
 
 I don’t want to be known for the rest of my life as Mr. Positive Energy. 
