@@ -84,3 +84,5 @@ Like Waterman, Michael Andrito, 25, was also a recreational athlete at UF. A pub
 ***NEED ANOTHER SOURCE THAT PERTAINS PARTICULARLY TO THE STIGMA OF MENTAL ILLNESSES AND HOW ATHLETES CAN BENEFIT FROM GETTING MENTAL HEALTH COUNSELING***
 
 ^^Waterman and Andrito don’t really fit into the story’s purpose  – I was trying to use them as sources that would be relatable to non-athlete UF students, but I may have to find another way or other sources. More reporting is needed.
+
+Also still working on the end - going to tie this back to Steel and how she is planning on running the Boston Marathon in April.
