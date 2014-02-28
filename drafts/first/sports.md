@@ -110,12 +110,55 @@ Having been successful here, there is a level of expectation that this program i
 "They see these guys come back and work and that really hits home with our young guys. It’s like, ‘Hey! OK, these guys are not just talented. They work to be successful.’” 
 
 When they walk through the doors, he’s going to get it out of them no matter what is happening outside. 
-	“You’re not leaving until we accomplish what I need to accomplish. 
+	“You’re not leaving until we accomplish what I need to accomplish." 
+
+##MEN'S SWIMMING
+
+It’s 5:30 am when the bright lights of the O’Connell Center Indoor Pool switch on and the 50 members of the swim team trickle in. Tommy Stitch, head athletic trainer for the team, spends his time filling orange Gatorade tubs, treating flu-season colds, and waits for the sun to rise and a new day to begin.
+
+“There is no typical day for me,” Stitch said. 
+
+After a two-hour practice, he heads right over to the weight room where the team holds an hour strength and conditioning session. His day follows up with an afternoon practice, post-practice treatments and rehab, not to mention appointment scheduling, paperwork and staff meetings. Throw away-meets into the mix and you have a near 24/7 job.
+
+“Its so easy to take care of people at UF. We have so many resources,” he said. “And if you can’t figure something out, there’s always a bunch of other people that can. We’re all working together.”
+
+Studying exercise science at Fresno State and LSU, Stitch has worked with volleyball, lacrosse and tennis. It wasn’t until he ventured to the Swamp where he found his true training rhythm in swimming.
+
+“Swimmers are disciplined,” he said. “It’s humbling to be around people that are so focused on what they do everyday – it makes you better.”
+
+Competing most years from September through April, swimming at UF is considered a year-long sport. With the constant get-up-and-go energy among swimming phenomena, Stitch pays special attention to maintaining each individual athlete’s energy.
+
+“There are some days where they all just looked drained,” Stitch said. “We just communicate: Every day, all day, communicating about everybody. I think a lot of people kind of feed off that.”
+
+Matt Thompson, 21, IM and freestyle and sports management junior, sure does.
+
+“With the training program, you can overwork things. If you’re not feeling well and you’re having a bad practice and you just don’t speak up about it, it can look like you’re just not trying,” he said. “Communication is definitely the biggest thing.”
+
+For Thompson, its crucial for athletes to be proactive in making time in their schedules to see both the trainers and coaches, especially when something is hurting.
+
+“The biggest injury would be shoulders,” said Stitch. “They can just point to where their shoulder hurts and we just already know what it is.” 
+
+To combat the wear and tear of swimming on the body, the team engages in daily weight room preventative exercises, fuels with Gatorade Prime Chews and carbohydrate powder, Vitargo, and focuses on hydrating throughout the day.
+
+“People probably don’t think about it with swimmers, but they sweat in the water so they don’t see it.” Stitch said. “It’s a little bit dangerous compared to other sports.”
+
+The sports nutrition office and weight room also also offer a variety of ways to energize the swim team. Post weight sessions call for Protein bars and shakes while snacks such as mixed nuts line shelves and a rainbow of Gatorade stocks the nutrition office fridge. But energy intake doesn’t stop at food and water. 
+
+“Our sport is so demanding, that it has to be a lifestyle in order to be successful,” Thompson said. “ You really want to make sure you get a good nights sleep.”
+
+- INTERVEWING THOMSPON AGAIN ON A SPECIFIC MEET MEMORY/EXPEREIENCE WHERE THEY PLAYED “SHABBA” -
+
+Traveling across the country to states like Texas, Minnesota and schools throughout the SEC is one of Thompson’s favorite parts of being a gator swimmer. In the locker room before his meet in ____, one of the seniors cranked up the sterero. “Shabba” by A$ap Ferg blasted the speakers 
+
+“It’s this year’s go-to song,” Thompson said. “When we hear that, we get pretty amped.”
+
+- INTERVIEWING THOMPSON ON HIS EXPERIENCE WITH HIS TEAMMATES AND MORE QUESTIONS SPECIFICALLY ON HIS RELATIONSHIP WITH STITCH -
 
 
-
-
-
-
-
-
+Additions to Matt’s diagram:
+- Gatorade Prime Chews
+- Vitargo Carbohydrate powder
+- Gatorade bottle (hydration)
+- Weight room protein shake
+- “Trap Lord” album by A$ap Ferg
+- Photo of him and Tommy Stitch?
