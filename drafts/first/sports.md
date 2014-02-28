@@ -55,7 +55,7 @@ Strausa especially looks to 5K American record-holder Bernard Lagat for inspirat
 “His interviews are just so motivational and energizing because he’s always so positive about everything, and that gives me a lot of energy,” she said.  
 
 
-- INTERVIEWING HER AFTER BREAK AND INDOOR SECS -
+-INTERVIEWING HER AFTER BREAK AND INDOOR SECS-
 
 
 Components to Agata’s Diagram:
