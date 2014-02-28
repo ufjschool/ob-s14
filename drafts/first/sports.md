@@ -1,4 +1,70 @@
-INTRO 
+ 
+##ENERGY OF AN ATHLETE / ENERGY BEHIND THE PERFORMANCE
+
+##INTRO
+
+For some UF athletes, energy is the electric buzz of techno music. For others, it’s the feeling of caffeine coursing through their veins. Energy is a green Gatorade bottle or a chocolate-peanut butter Clif bar; it’s feeling cold water sliding down your throat during an afternoon practice or the smell of a sizzling steak at dinnertime. Energy is that moment of complete mental and physical suspension before the gun goes off, a whistle sounds, or the ball is snapped – it’s a team prayer, the words of a coach, the hopeful cries of fans. For athletes at UF, just the mere sight of an orange and blue jersey is enough to power them up, inject their spirits, and send them flying full-force into a performance of their lifetime. 
+
+Talent takes an athlete only so far. Behind the record-setting times, the slam-dunks, the point-scoring plays and the perfect 10.0’s, lies months of preparation with an entire team of coaches who stand ready to infuse energy into both the body and mind of an athlete. Like an actor on stage, the individual athlete collaborates with an entire team of backstage managers in order to give their best possible performance on game-day.
+
+^ Need to clean up second Paragraph
+
+##WOMEN'S TRACK
+
+Looking at the European snow-capped mountains for the last time, Agata Strausa knew she was going to need much more than coffee and her favorite dark chocolate to get her through this trip. Two years ago, Strausa, now 24, chose to leave behind her Latvian family and her career in industrial Design at the Berlin Academy of Arts to pursue her dream to become a professional distance-runner.
+
+Trying to relax on the ten-hour flight to Gainesville, she closed her eyes and counted days: One day until she’d be in another country. Ten days until she’d walk into her first UF art history class. And 30 until she’d lace up her spikes, slip on her orange and blue jersey and compete for the first time as a UF mid-distance track runner. 
+
+“Energy is more in the mind than in the body,” she said. “It’s not so much about how you fuel yourself and your body but more like how your attitude is.”
+
+Strausa was pretty much born motivated. Determined to balance both athletics and academics, she spent nearly two hours a day commuting from Berlin’s Academy of Arts to the other side of the city for her team practices. Pulling all-nighters and having to squeeze in extra studio hours at her college, she was ready for a change and transferred to UF for her final two years of undergraduate study. 
+
+“My roommates, who were also my teammates, made it really easy for me,” she said. “They were my energy.”
+
+Callie Cooper, 23, a four-year UF distance runner and 2013 graduate, was a guide and mentor for Strausa. As an organic-crop production major and former vegan, Cooper had fully embraced Gainesville’s agricultural corners. Trader Joe’s excursions, Wednesday Farmer’s Market runs, and organic pre-run breakfasts had quickly become the heart of “The Coop,” the name of Cooper and Strausa’s four bedroom Gainesville home whom they shared with two other girls. 
+
+“My goal is just to live healthy,” Cooper said, who now resides in Eugene, Oregon and runs for Team Eugene running club. “That’s why I love running so much. It keeps you fit and healthy.”
+
+While Strausa focuses on fueling her body with lean protein sources and vegetables, she stays sure to indulge once in a while on Ritter Sport dark chocolate and religiously drinks a double-shot Starbucks espresso before every race. <<Somewhat out of place 
+
+But the excitement of living in this Florida farm town, studying at a new school and competing on a team five times the size of the one in Germany didn’t even compare to how she felt before her first indoor race. Only a month after moving in, Strausa debuted in the 3,000-meter race at the indoor University of Washington Husky Classic in Seattle. Stepping onto the track with some of the top collegiate distance runners in the country and professionals representing companies such as Nike and Adidas left her completely speechless.
+
+“I didn’t even know what to say,” she said. “I just remember I was so pumped and excited and energized the first time I put the Florida jersey on to compete. That was a special moment for me.” 
+
+Staying focused on the race and getting to the starting line on time, Strausa remembers stepping out of her warm-up clothes a little too early. UF head track and field coach, Mike Holloway, was by her side with compassion, advice, and some pre-race encouragement. 
+
+ “It meant that my head coach really cares about me and has like his eyes on us all of the time,” she said. “He takes his job really seriously and takes what we do really seriously.” 
+
+With her coaches and teammates cheering on the sidelines, she let the orange and blue energy cruise her to the finish line, running a personal best of  9:17.
+
+After that, she knew UF was going to be good. 
+
+Fast-forward two years, and her energy is far from depleted. Having worked under a team of coaches, athletic trainers, nutritionists, and 15 other distance runner teammates, this All-American feels more charged than ever.
+
+“Every athlete is just as good as his support system,” she said. “Its not just about the athlete’s performance, its about how the people that perform that stand behind the athlete.” 
+
+Andy Klock, head UF track and field athletic trainer, is one big part of Strausa’s success. Spending up to 70 hours a week with the team in season, Klock enjoys helping the athletes reach their potential not just in their sport, but in life.
+
+“We constantly try to maintain a very positive atmosphere in the athletic training room,” he said. “One technique I utilize as well is reminding the athlete that the only person they are competing with is themselves.”
+
+Much of Strausa’s schedule revolves around working with her trainers in injury prevention, a nutritionist in creating meal plans, and a weight coach in strength training. But at the end of the day, it always comes back to her teammates and other athletes. 
+
+“Just the encouragement from your teammates means a lot cause they are going through kind of the same things and we have a similar lifestyle,” she said.  “Other athletes give me a lot of energy too.”
+
+Strausa especially looks to 5K American record-holder Bernard Lagat for inspiration. 
+“His interviews are just so motivational and energizing because he’s always so positive about everything, and that gives me a lot of energy,” she said.  
+
+
+- INTERVIEWING HER AFTER BREAK AND INDOOR SECS -
+
+
+Components to Agata’s Diagram:
+• Starbucks Double Shot Espresso
+• Ritter Sport dark chocolate
+• Trader Joe’s bag
+• Photos of her racing sketches – she does this as a pre-race technique
+• Photo of her and Callie Cooper
+• Photo of her with coach Holloway?
 
 
 ##MEN'S BASKETBALL 
