@@ -59,12 +59,12 @@ Strausa especially looks to 5K American record-holder Bernard Lagat for inspirat
 
 
 Components to Agata’s Diagram:
-• Starbucks Double Shot Espresso
-• Ritter Sport dark chocolate
-• Trader Joe’s bag
-• Photos of her racing sketches – she does this as a pre-race technique
-• Photo of her and Callie Cooper
-• Photo of her with coach Holloway?
+- Starbucks Double Shot Espresso
+- Ritter Sport dark chocolate
+- Trader Joe’s bag
+- Photos of her racing sketches – she does this as a pre-race technique
+- Photo of her and Callie Cooper
+- Photo of her with coach Holloway?
 
 
 ##MEN'S BASKETBALL 
@@ -146,13 +146,13 @@ The sports nutrition office and weight room also also offer a variety of ways to
 
 “Our sport is so demanding, that it has to be a lifestyle in order to be successful,” Thompson said. “ You really want to make sure you get a good nights sleep.”
 
-- INTERVEWING THOMSPON AGAIN ON A SPECIFIC MEET MEMORY/EXPEREIENCE WHERE THEY PLAYED “SHABBA” -
+-INTERVEWING THOMSPON AGAIN ON A SPECIFIC MEET MEMORY/EXPEREIENCE WHERE THEY PLAYED “SHABBA” -
 
 Traveling across the country to states like Texas, Minnesota and schools throughout the SEC is one of Thompson’s favorite parts of being a gator swimmer. In the locker room before his meet in ____, one of the seniors cranked up the sterero. “Shabba” by A$ap Ferg blasted the speakers 
 
 “It’s this year’s go-to song,” Thompson said. “When we hear that, we get pretty amped.”
 
-- INTERVIEWING THOMPSON ON HIS EXPERIENCE WITH HIS TEAMMATES AND MORE QUESTIONS SPECIFICALLY ON HIS RELATIONSHIP WITH STITCH -
+-INTERVIEWING THOMPSON ON HIS EXPERIENCE WITH HIS TEAMMATES AND MORE QUESTIONS SPECIFICALLY ON HIS RELATIONSHIP WITH STITCH -
 
 
 Additions to Matt’s diagram:
