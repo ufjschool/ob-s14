@@ -1,8 +1,8 @@
 **This is a compilation of our first draft stories revolving around all things haunted and paranormal. Each story is written in first person narrative. We plan to compile our stories so that they fit well together, but for now they are individual pieces. Some of the formatting got weird…we apologize.** 
 
-Katherine Hahn 
+#Katherine Hahn 
 
-HAUNTED UF
+###HAUNTED UF
 
 Ghost stories are strange animals. Year after year you hear them in different voices, see them through different lenses. You can’t prove they exist but can never seem to put a figure on why they don’t. 
 
@@ -10,7 +10,7 @@ Tracing its roots back before the Civil War, the University of Florida has quite
 
 With death and history comes the inevitable – the ghost story. 
 
-BEATY 
+###BEATY 
 
 “The lights were all off”
 
@@ -31,7 +31,8 @@ And that was only the first time, Romero said. Another night, Dostovic was tryin
 He ignored it until he saw his doorknob turn, slowly.
 
 “He didn’t go to sleep that night,” Romero said.
-A Little History
+
+####A Little History
 
 Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, and eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967, but was eventually named after professor Robert Calder Beaty (http://www.uff.ufl.edu/Facilities/Facilities.asp?ID=104). Beaty was a WWI veteran and former University of Florida Dean of Student Personnel who retired in 1960.
 
@@ -41,7 +42,7 @@ The dorm opened in the midst of social change on college campuses, the book expl
 
 Supposedly around that time, a girl jumped from her Beaty dormitory to her death.
 
-A suicide legend
+####A suicide legend
 
 Kids have died on the UF campus. Death is an inevitability among 50,000 students. Some of them have died in their dorm rooms, some in Beaty Towers. A simple Google search of “UF student died Beaty Towers” turns up old Gainesville Sun articles with details. One of the first to come up is a November 1987 write-up of the alcohol poisoning death of 18-year-old freshman Robert Stevenson, who was found in his dorm room at Beaty TowersEast (http://news.google.com/newspapers?nid=1320&dat=19871126&id=Hj9WAAAAIBAJ&sjid=D-oDAAAAIBAJ&pg=3704,3048058).
 
@@ -79,7 +80,7 @@ Despite these repeated denials, the Tom-Petty-Beaty-Towers-suicide legend stubbo
 
 **last section will contain more testimony/opinions/thoughts from students**
 
-James Thieke 
+#James Thieke 
 
 
 James W. Norman Hall houses the University of Florida’s College of Education, named for the man who was the college’s dean from 1920 to 1941. The naming occurred in 1958, but the building itself opened in 1934. At that time, it housed P.K. Yonge Laboratory School, and rumors abound that an incident during that time has left Normal Hall haunted ever since.
