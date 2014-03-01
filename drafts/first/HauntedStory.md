@@ -222,7 +222,7 @@ He then also tells me that the first-floor men’s bathroom used to have a thin 
 
 I go to the bathroom to confirm this. The thin metal he referred to has since been replaced by a much sturdier metal plate, with screws in it that are strong enough to fix it on, but loose enough to see there is definitely a lot of space behind it. The screws are big enough that I could probably unscrew them with my keys, but that would probably be illegal to do, so I don’t. 
 
-Ghosts, sounds, boxes, rats, and stairways…how much creepier can this building get?
+*Ghosts, sounds, boxes, rats, and stairways…how much creepier can this building get?*
 *** 
 8:45 p.m. – Readjusting my eyes to the darkness is a pain, but I’m soon back in business in my spot by the water fountain. It’s much harder now. It’s not that I feel tired, but I feel almost heavier. When I sit next to the water fountain, it feels as though I constantly want to leave. I’m never comfortable.
 
