@@ -95,16 +95,24 @@ He also noted how, in medicine, energy healing is available for registered nurse
 ##Carolyn Green: Energy Nurse
 
 The one word she described her work: fascinating.
+
 She is not just any type of nurse. 
+
 Carolyn Green is the official “Energy Nurse.”
+
 Green assists in balancing the energy field in one’s body, also commonly known as the auric field.  The energetic system has an anatomy of its own.
+
 “The advantage to that, is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
-	From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. 
-	“It is like taking your basic senses to the second floor,” Green said. 
+
+From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. 
+
+“It is like taking your basic senses to the second floor,” Green said. 
+
 This ability was something she understood later on in life as functioning on a higher frequency level.  Today they refer to it more as HSP, higher sensory perception. 
-•	Jewish, believe in one God
-•	Works with a collective of over 20 angels and guides, to tune into, for info on the healing process of my patients. 
-•	Does a lot of grief work as well, since many departed loved ones make their presence known to me to help their family who are still grieving.
-•	Author of Getting to Know You: Guided Pearls; wrote the book because “The Spirit moved me!” channeled messages from a spirit that became the book, which was written in four months. 
-•	IN the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual body. 
+
+*Jewish, believe in one God
+*Works with a collective of over 20 angels and guides, to tune into, for info on the healing process of my patients. 
+*Does a lot of grief work as well, since many departed loved ones make their presence known to me to help their family who are still grieving.
+*Author of Getting to Know You: Guided Pearls; wrote the book because “The Spirit moved me!” channeled messages from a spirit that became the book, which was written in four months. 
+*In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual body. 
 
