@@ -21,7 +21,7 @@ By virtue of their religious foundation, ardent followers of any religion are bo
 
 Here are what some local religious leaders and scholars say about what each religion believes about the paranormal in the world today. 
 
-##Roman Catholic Christianity
+###Roman Catholic Christianity
 
 Catholicism is the largest single denomination of Christianity, the world’s most popular religion, in America. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
 
@@ -43,7 +43,7 @@ Overall, he said it is less of a concern to worry about experiencing the paranor
 
 “Spirits might be there; let them be,” he said. “Evil spirits might be there; let them be. But our faith has been anchored by the ultimate source of power.”
 
-##Greek Orthodox Christianity
+###Greek Orthodox Christianity
 
 Orthodoxy is a sect of Christianity that is popular in Eastern Europe and Asia. It is closely related to Catholicism in many ways, except for a few key differences that split the church in the East-West Schism of 1064. 
 
@@ -61,7 +61,7 @@ Anything that humans do with the paranormal must come through the Holy Spirit an
 
 “A lot of the things we know today were not understood in the day of Christ,” he said. “As human beings, we have a very difficult time expressing and understanding them, because there are things that are not understandable by the human mind.”
 
-##Baptist Protestant Christianity
+###Baptist Protestant Christianity
 
 The Baptist Church is a denomination of Christianity often included under the umbrella of Protestant Christianity, the different sects of which came about during and after the Reformation in the 16th century. Baptist Christianity itself has many different sects, characterized by the beliefs of baptizing professed believers and salvation through faith alone.
 
@@ -77,7 +77,7 @@ Leathem said that a lot of what is interpreted as paranormal experiences might j
 
 “Don’t mess with it, and understand that as long as you’re focused on God, He’s going to protect you,” he said.
 
-##Judaism
+###Judaism
 
 Judaism originated in the Middle East during the Bronze Age, and it is believed to be one of the oldest monotheistic religions in the world.  The Jewish texts and traditions laid the foundation for both Christianity and Islam.
 
@@ -99,7 +99,7 @@ Notik also noted that it is hard to discuss souls, because they exist beyond the
 
 “Outside of the physical setting, these things don’t exist,” he said.
 
-##Islam
+###Islam
 
 Islam is a religion founded in the 7th century that believes Muhammad was the final prophet of God. It accepts many of the texts and historical events of Judaism and Christianity but continues with its own traditions and teachings.
 
@@ -125,7 +125,7 @@ While the concept of the jinn opens up lots of paranormal possibilities in the I
 
 “It’s part of the faith, you have to believe these things, but it’s something you shouldn’t worry your day-to-day activities with or get involved in,” he said.  “Because these are in another realm, and it’s not part of your duties on Earth.”
 
-##Hinduism
+###Hinduism
 
 Hinduism is a polytheistic religion based in India that includes many diverse traditions. According to Vasudha Narayanan, a distinguished professor of religion at UF with a specialty in Hindu traditions, while there are central tenets and religious texts, regional culture and upbringing is often more influential in an individual’s beliefs. 
 
