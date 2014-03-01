@@ -28,6 +28,7 @@ Roman Catholic Christianity
 
 
 Greek Orthodox Christianity
+
 Orthodoxy is a sect of Christianity that is popular in Eastern Europe and Asia. It is closely related to Catholicism in many ways, except for a few key differences that split the church in the East-West Schism of 1064. 
 Fr. Nikitas Thedosion, priest of St. Elizabeth’s Greek Orthodox Church, said the judgment of human’s soul after death comes only at the Second Judgment, when Christ will come again to judge the world. How soon after death that happens, where the soul is in the meantime, and how time even works in the afterlife are less clear to the Church. 
 When asked if the souls could come back to Earth, Theodosion said the notion has no support from the faith.
@@ -36,7 +37,9 @@ Theodosion admitted the truth of demons and miracles, citing specific examples o
 “It can’t be anything human,” he said, “because none of us have that kind of power.”
 Anything that humans do with the paranormal must come through the Holy Spirit and God, according to Theodosion, ruling out the psychics that make predictions for personal benefit or individual future-telling. Everything not through God is either false or a mistake. 
 “A lot of the things we know today were not understood in the day of Christ,” he said. “As human beings, we have a very difficult time expressing and understanding them, because there are things that are not understandable by the human mind.”
+
 Baptist Protestant Christianity
+
 	The Baptist Church is a denomination of Christianity often included under the umbrella of Protestant Christianity, the different sects of which came about during and after the Reformation in the 16th century. Baptist Christianity itself has many different sects, characterized by the beliefs of baptizing professed believers and salvation through faith alone.
 	Jack Leathem, college minister at Westside Baptist Church, said that when the soul dies, it either goes to heaven or hell depending on one’s deeds, and that he believes the soul will not come back to Earth.
 	“We generally don’t believe that they’re present,” he said. “They’re where they’re supposed to be.”
@@ -47,6 +50,7 @@ Baptist Protestant Christianity
 
 
 Judaism
+
 	Judaism originated in the Middle East during the Bronze Age, and it is believed to be one of the oldest monotheistic religions in the world.  The Jewish texts and traditions laid the foundation for both Christianity and Islam.
 	Rabbi Aaron Notik, program director for Lubavitch Jewish Center, said the Jewish faith believes man is part body and part soul, and that upon death the soul departs to the afterlife. According to Notik, bad souls will go through a cleansing process, so all will eventually each heaven. 
 	Notik also said that the soul can exist in multiple places at once: during life, part of the soul remains in heaven while part of it exists in the body. Upon death, the soul departs from the body, and certain traditions say that the grave should not be visited for a year, so as not to disturb the departing process. 
@@ -59,6 +63,7 @@ Notik also noted that it is hard to discuss souls, because they exist beyond the
 “Outside of the physical setting, these things don’t exist,” he said.
 
 Islam
+
 	Islam is a religion founded in the 7th century that believes Muhammad was the final prophet of God. It accepts many of the texts and historical events of Judaism and Christianity but continues with its own traditions and teachings.
 	Mustafa Ahmed, a physician and member of the Islamic Community Center of Gainesville, said that the Islamic faith attempts to reconcile the worlds of the “seen” and the “unseen.” He said after death, the soul progresses to an afterlife but may have still have interactions with physical reality.
 	“Prophetic tradition holds that those who have passed can hear the living,” he said in an email. “Other prophetic traditions suggest to us that those who have passed will speak and comment on their spiritual condition and how they may have spent their time in their previous realm of existence, but that their speech is inaudible to the living.”
@@ -73,6 +78,7 @@ While the concept of the jinn opens up lots of paranormal possibilities in the I
 “It’s part of the faith, you have to believe these things, but it’s something you shouldn’t worry your day-to-day activities with or get involved in,” he said.  “Because these are in another realm, and it’s not part of your duties on Earth.”
 
 Hinduism
+
 	Hinduism is a polytheistic religion based in India that includes many diverse traditions. According to Vasudha Narayanan, a distinguished professor of religion at UF with a specialty in Hindu traditions, while there are central tenets and religious texts, regional culture and upbringing is often more influential in an individual’s beliefs. 
 	Narayanan said that older traditions in Hinduism frequently involve the paranormal. 
 	‘What we think of as paranormal in the west, or in the post-enlightenment world, that is not considered to be abnormal or supernormal in India,” she said. “It’s very much seen in the realm of experience.”
