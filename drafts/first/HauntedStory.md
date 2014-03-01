@@ -99,7 +99,7 @@ I arrive at Norman around 6:30 p.m. According to Tom Dana, associate dean of the
 
 I walk up the stairs to the third floor. The lights are all on in the hallways, but I don’t see any other people. There is a palpably creepy feeling in the staircase, but it may just be from lack of clean air; the staircase has a very mildewed smell. 
 
-As I walk over to the water fountain, its cooling compressor shuts off, leaving the room suddenly quiet. Not exactly a good omen, I think to myself.
+As I walk over to the water fountain, its cooling compressor shuts off, leaving the room suddenly quiet. *Not exactly a good omen*, I think to myself.
 
 I put down my backpack and my umbrella and slouch against the wall next to the fountain. It’s now 6:45 p.m., and the sky outside is dark. The hallway is still deserted. I take a couple deep breaths and close my eyes.
 *** 
@@ -198,7 +198,7 @@ I stop and look down the hall. There is a small, brown, open box just sitting in
 
 I walk down the hall and look inside. It’s empty. The information on the side indicates it was for the person in the nearest office.
 
-I go back to my spot and turn the lights back off. The people never came to the third floor. My mind is racing. Did I really not notice that box? If it wasn’t there, how did it get there? It’s so quiet around here I would have heard footsteps.
+I go back to my spot and turn the lights back off. The people never came to the third floor. My mind is racing. *Did I really not notice that box? If it wasn’t there, how did it get there? It’s so quiet around here, I would have heard footsteps.*
 ***
 “Be an open-minded skeptic,” Nichols says. “Make your own judgment, but give yourself a chance to have a connection with the unknown. These experiences can be transformative.”
 ***
