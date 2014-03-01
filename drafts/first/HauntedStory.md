@@ -142,7 +142,7 @@ But Daryl Bish, admissions coordinator for the institute, recalls a separate ins
 “It’s just a fun story,” he says of the haunting rumors. “I’ve been here at 1 a.m. It is creepier, no doubt.”
 Owens, however, believes the stories. “Other people might say I’m crazy, but we’ve had things happen in our family, so I don’t doubt it at all.”
 *** 
-7:15 – A girl’s voice.
+**7:15** – A girl’s voice.
 
 It was soft and mumbled and really high-pitched, but I definitely heard a girl’s voice. It wasn’t in the hall either; it definitely sounded like it was being spoken into my mind.
 
@@ -156,7 +156,7 @@ Nichols’ specialty is in investigating haunting cases, and he once even receiv
 
 He says particularly violent or extreme events create longer-lasting impressions, as do repetitive events. He says most hauntings can last for decades or even centuries, as long as the building where the energy has imprinted remains.
 ***
-7:30 – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: when you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
+**7:30** – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: when you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
 
 Getting a little tired of sitting and waiting, I decide to explore some other areas of the building. I walk around the hall to find the elevator. When the doors open, a loud bell dings. I would have definitely heard that from where I was sitting. That means what I was hearing wasn’t the elevator. 
 
@@ -190,7 +190,7 @@ Do you care to talk about them?
 
 She tightens her mouth and shakes her head.
 ***
-8:00 p.m. – I’m jarred out of my reverie by noises from the stairwell. They were definitely coming from people. Not wanting to make an awkward scene by having people wander in on a dark hallway with a man sitting on the floor, I quickly jump up and start turning on the lights. 
+**8:00 p.m.** – I’m jarred out of my reverie by noises from the stairwell. They were definitely coming from people. Not wanting to make an awkward scene by having people wander in on a dark hallway with a man sitting on the floor, I quickly jump up and start turning on the lights. 
 
 I turn on the main light, the right hallway light, the left hallway light, and the light at the end of the hallway – revealing a box.
 
@@ -202,7 +202,7 @@ I go back to my spot and turn the lights back off. The people never came to the 
 ***
 “Be an open-minded skeptic,” Nichols says. “Make your own judgment, but give yourself a chance to have a connection with the unknown. These experiences can be transformative.”
 ***
-8:15 p.m. – My eyes have finally adjusted to the dark. I can now discern shadows from what previously looked like movement. I still hear the elevator-like noises. Once again I hear sounds coming from the stairwell. I decide I should take another trip through the building.
+**8:15 p.m.** – My eyes have finally adjusted to the dark. I can now discern shadows from what previously looked like movement. I still hear the elevator-like noises. Once again I hear sounds coming from the stairwell. I decide I should take another trip through the building.
 
 I descend to the first floor and return to the break room. The man with the laptop is still there, and he nods at me as I sit to jot down notes. After I finish, I walk over to talk to him.
 
@@ -224,7 +224,7 @@ I go to the bathroom to confirm this. The thin metal he referred to has since be
 
 *Ghosts, sounds, boxes, rats, and stairways…how much creepier can this building get?*
 *** 
-8:45 p.m. – Readjusting my eyes to the darkness is a pain, but I’m soon back in business in my spot by the water fountain. It’s much harder now. It’s not that I feel tired, but I feel almost heavier. When I sit next to the water fountain, it feels as though I constantly want to leave. I’m never comfortable.
+**8:45 p.m.** – Readjusting my eyes to the darkness is a pain, but I’m soon back in business in my spot by the water fountain. It’s much harder now. It’s not that I feel tired, but I feel almost heavier. When I sit next to the water fountain, it feels as though I constantly want to leave. I’m never comfortable.
 
 A long time passes with nothing happening. Just as soon as I start to think it might be all in my head, the two hallways on either side of me dim. Then I hear a pop in the right hallway, followed immediately by the chain rattle from the left, followed by the crack of the water fountain cooler turning on. I think the universe is trying to teach me a lesson.
 
@@ -233,7 +233,7 @@ After 30 tense minutes, I decide to spend my final 15 minutes in Norman at anoth
 “These are all stories,” Lansford says. “There are no names where you can verify that it happened.” 
 
 In his article, Lansford writes about how the elevator where the children supposedly died was an old-style elevator, with a spring-loaded accordion-style gate. At the time of the article, 2005, students still had to use that elevator. ***
-9:15 p.m. – It would look like just a normal brown, wooden door, if not for the big, red sign that reads, “ELEVATOR OUT OF SERVICE.” Just a couple of paces away is the new elevator; sleek, shiny and metallic.  I turn as many lights off as I can and sit down next to the old elevator.  
+**9:15 p.m.** – It would look like just a normal brown, wooden door, if not for the big, red sign that reads, “ELEVATOR OUT OF SERVICE.” Just a couple of paces away is the new elevator; sleek, shiny and metallic.  I turn as many lights off as I can and sit down next to the old elevator.  
 
 I keep waiting for the impending dread, or the weight of the world…but it doesn’t come. It feels as though I’m sitting in a normal hallway. It is actually the most normal I have felt all night. 
 
