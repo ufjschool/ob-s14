@@ -62,7 +62,8 @@ The suicide legend stems from the Tom Petty song “American Girl,” Van Ness s
 *And for one desperate moment*                                                                                       
 *There he crept back in her memory*                                                                                  
 *God, it’s so painful when something that’s so close*                                                                
-*Is still so far out of reach.*                                                                                         
+*Is still so far out of reach.*    
+
 U.S. Highway 441 is actually 13th Street in Gainesville, which runs right past Beaty Towers.
 
 Tom Petty is a Gainesville native and would have seen the dorm many times.
