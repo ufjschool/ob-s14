@@ -140,6 +140,7 @@ Claiming to have seen a full human ghost is tough to explain as something else. 
 But Daryl Bish, admissions coordinator for the institute, recalls a separate instance, where a teacher quit after swearing to have seen a little girl in the same hall. He doesn’t believe it though.
 
 “It’s just a fun story,” he says of the haunting rumors. “I’ve been here at 1 a.m. It is creepier, no doubt.”
+
 Owens, however, believes the stories. “Other people might say I’m crazy, but we’ve had things happen in our family, so I don’t doubt it at all.”
 *** 
 **7:15** – A girl’s voice.
@@ -232,7 +233,8 @@ After 30 tense minutes, I decide to spend my final 15 minutes in Norman at anoth
 *** 
 “These are all stories,” Lansford says. “There are no names where you can verify that it happened.” 
 
-In his article, Lansford writes about how the elevator where the children supposedly died was an old-style elevator, with a spring-loaded accordion-style gate. At the time of the article, 2005, students still had to use that elevator. ***
+In his article, Lansford writes about how the elevator where the children supposedly died was an old-style elevator, with a spring-loaded accordion-style gate. At the time of the article, 2005, students still had to use that elevator. 
+***
 **9:15 p.m.** – It would look like just a normal brown, wooden door, if not for the big, red sign that reads, “ELEVATOR OUT OF SERVICE.” Just a couple of paces away is the new elevator; sleek, shiny and metallic.  I turn as many lights off as I can and sit down next to the old elevator.  
 
 I keep waiting for the impending dread, or the weight of the world…but it doesn’t come. It feels as though I’m sitting in a normal hallway. It is actually the most normal I have felt all night. 
