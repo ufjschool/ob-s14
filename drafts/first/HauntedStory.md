@@ -144,54 +144,87 @@ Only the light in the center room remains on. After some searching, I go out to 
 
 Now it is very dark. And I as I sit back down, I actually feel consciously afraid.
 *** 
-	Have you ever had any kind of paranormal experiences here? I ask Owens.
-	“Not here, no,” she says.
+Have you ever had any kind of paranormal experiences here? I ask Owens.
+
+“Not here, no,” she says.
+
 How about other places?
+
 Her eyes widen as she takes a breath and nods her head.
+
 Do you care to talk about them?
+
 She tightens her mouth and shakes her head.
 ***
 8:00 p.m. – I’m jarred out of my reverie by noises from the stairwell. They were definitely coming from people. Not wanting to make an awkward scene by having people wander in on a dark hallway with a man sitting on the floor, I quickly jump up and start turning on the lights. 
-	I turn on the main light, the right hallway light, the left hallway light, and the light at the end of the hallway – revealing a box.
-	I stop and look down the hall. There is a small, brown, open box just sitting in the middle of the hallway. I walked down that hallway not 15 minutes earlier. I may not be the most observant person in the world at all times, but I would have noticed a box in the middle of my walking path. 
-	I walk down the hall and look inside. It’s empty. The information on the side indicates it was for the person in the nearest office.
-	I go back to my spot and turn the lights back off. The people never came to the third floor. My mind is racing. Did I really not notice that box? If it wasn’t there, how did it get there? It’s so quiet around here I would have heard footsteps.
+
+I turn on the main light, the right hallway light, the left hallway light, and the light at the end of the hallway – revealing a box.
+
+I stop and look down the hall. There is a small, brown, open box just sitting in the middle of the hallway. I walked down that hallway not 15 minutes earlier. I may not be the most observant person in the world at all times, but I would have noticed a box in the middle of my walking path. 
+
+I walk down the hall and look inside. It’s empty. The information on the side indicates it was for the person in the nearest office.
+
+I go back to my spot and turn the lights back off. The people never came to the third floor. My mind is racing. Did I really not notice that box? If it wasn’t there, how did it get there? It’s so quiet around here I would have heard footsteps.
 ***
-	“Be an open-minded skeptic,” Nichols says. “Make your own judgment, but give yourself a chance to have a connection with the unknown. These experiences can be transformative.”
+“Be an open-minded skeptic,” Nichols says. “Make your own judgment, but give yourself a chance to have a connection with the unknown. These experiences can be transformative.”
 ***
 8:15 p.m. – My eyes have finally adjusted to the dark. I can now discern shadows from what previously looked like movement. I still hear the elevator-like noises. Once again I hear sounds coming from the stairwell. I decide I should take another trip through the building.
-	I descend to the first floor and return to the break room. The man with the laptop is still there, and he nods at me as I sit to jot down notes. After I finish, I walk over to talk to him.
-	He reveals himself to be Tyler Egan, an undergraduate botany student with aspirations of medical school. He says he works down the street from Norman, so it makes a good study location. Since he is often here late into the night, I ask him what he knows about the building.
-	Despite coming here for years, he is unaware of the haunted rumors. He says he knows about how old this building is, and that he has always been drawn to that. However, even though he often stays late, he has never had any paranormal experiences.
-	“Then again, I only ever come to the first floor,” he says. I observe that the well-lit, spacious break room has an entirely different feel than the third-floor water fountain. 
-	“All I ever see are rats and mice that run around here,” he says.
-	You see rats and mice?
-	“Yeah, they come out of that corner,” he says gesturing to a spot. “I haven’t seen them in the last few weeks though.”
-	He then also tells me that the first-floor men’s bathroom used to have a thin piece of metal loosely attached to the wall, and that pulling it back would reveal a small staircase going down. “Although I don’t know what down from here would be,” he says. “We’re on the ground.”
-	I go to the bathroom to confirm this. The thin metal he referred to has since been replaced by a much sturdier metal plate, with screws in it that are strong enough to fix it on, but loose enough to see there is definitely a lot of space behind it. The screws are big enough that I could probably unscrew them with my keys, but that would probably be illegal to do, so I don’t. 
-	Ghosts, sounds, boxes, rats, and stairways…how much creepier can this building get?
+
+I descend to the first floor and return to the break room. The man with the laptop is still there, and he nods at me as I sit to jot down notes. After I finish, I walk over to talk to him.
+
+He reveals himself to be Tyler Egan, an undergraduate botany student with aspirations of medical school. He says he works down the street from Norman, so it makes a good study location. Since he is often here late into the night, I ask him what he knows about the building.
+
+Despite coming here for years, he is unaware of the haunted rumors. He says he knows about how old this building is, and that he has always been drawn to that. However, even though he often stays late, he has never had any paranormal experiences.
+
+“Then again, I only ever come to the first floor,” he says. I observe that the well-lit, spacious break room has an entirely different feel than the third-floor water fountain. 
+
+“All I ever see are rats and mice that run around here,” he says.
+
+You see rats and mice?
+
+“Yeah, they come out of that corner,” he says gesturing to a spot. “I haven’t seen them in the last few weeks though.”
+
+He then also tells me that the first-floor men’s bathroom used to have a thin piece of metal loosely attached to the wall, and that pulling it back would reveal a small staircase going down. “Although I don’t know what down from here would be,” he says. “We’re on the ground.”
+
+I go to the bathroom to confirm this. The thin metal he referred to has since been replaced by a much sturdier metal plate, with screws in it that are strong enough to fix it on, but loose enough to see there is definitely a lot of space behind it. The screws are big enough that I could probably unscrew them with my keys, but that would probably be illegal to do, so I don’t. 
+
+Ghosts, sounds, boxes, rats, and stairways…how much creepier can this building get?
 *** 
 8:45 p.m. – Readjusting my eyes to the darkness is a pain, but I’m soon back in business in my spot by the water fountain. It’s much harder now. It’s not that I feel tired, but I feel almost heavier. When I sit next to the water fountain, it feels as though I constantly want to leave. I’m never comfortable.
-	A long time passes with nothing happening. Just as soon as I start to think it might be all in my head, the two hallways on either side of me dim. Then I hear a pop in the right hallway, followed immediately by the chain rattle from the left, followed by the crack of the water fountain cooler turning on. I think the universe is trying to teach me a lesson.
-	After 30 tense minutes, I decide to spend my final 15 minutes in Norman at another location.
+
+A long time passes with nothing happening. Just as soon as I start to think it might be all in my head, the two hallways on either side of me dim. Then I hear a pop in the right hallway, followed immediately by the chain rattle from the left, followed by the crack of the water fountain cooler turning on. I think the universe is trying to teach me a lesson.
+
+After 30 tense minutes, I decide to spend my final 15 minutes in Norman at another location.
 *** 
-	“These are all stories,” Lansford says. “There are no names where you can verify that it happened.” 
-	In his article, Lansford writes about how the elevator where the children supposedly died was an old-style elevator, with a spring-loaded accordion-style gate. At the time of the article, 2005, students still had to use that elevator. 
-***
+“These are all stories,” Lansford says. “There are no names where you can verify that it happened.” 
+
+In his article, Lansford writes about how the elevator where the children supposedly died was an old-style elevator, with a spring-loaded accordion-style gate. At the time of the article, 2005, students still had to use that elevator. ***
 9:15 p.m. – It would look like just a normal brown, wooden door, if not for the big, red sign that reads, “ELEVATOR OUT OF SERVICE.” Just a couple of paces away is the new elevator; sleek, shiny and metallic.  I turn as many lights off as I can and sit down next to the old elevator.  
-	I keep waiting for the impending dread, or the weight of the world…but it doesn’t come. It feels as though I’m sitting in a normal hallway. It is actually the most normal I have felt all night. 
-	It gets to be 9:30, and so I end my mission on a confusing note. I leave the third floor, turning back on all of the lights as I go. As I step out into the night air, the weighty feeling doesn’t leave. I make it all the way back to my house before I feel any different.
-	I’m left to wonder about my experience. No ghosts, no visions, and no definitive signs of paranormal activity. I did always feel worse by the water fountain than anywhere else in the building. But it’s difficult to separate how much of that was actual paranormal activity, how much was my knowledge of its haunting, and even how much my fear of getting in trouble, even though I wasn’t breaking any laws of which I am aware.
-	Talking with Egan also made me wonder. He didn’t know about the hauntings, and he never had any paranormal problems. In fact, maybe Norman seems haunted because, as he pointed out, it is an old building. It creaks, moans, has stale air and even has rats from time to time. All of those things could explain lots of paranormal phenomena.
-	Still, there was that girl’s voice. And there was that mysterious box. I’ve had a while to think about it, and I still can’t explain either of them.
+
+I keep waiting for the impending dread, or the weight of the world…but it doesn’t come. It feels as though I’m sitting in a normal hallway. It is actually the most normal I have felt all night. 
+
+It gets to be 9:30, and so I end my mission on a confusing note. I leave the third floor, turning back on all of the lights as I go. As I step out into the night air, the weighty feeling doesn’t leave. I make it all the way back to my house before I feel any different.
+
+I’m left to wonder about my experience. No ghosts, no visions, and no definitive signs of paranormal activity. I did always feel worse by the water fountain than anywhere else in the building. But it’s difficult to separate how much of that was actual paranormal activity, how much was my knowledge of its haunting, and even how much my fear of getting in trouble, even though I wasn’t breaking any laws of which I am aware.
+
+Talking with Egan also made me wonder. He didn’t know about the hauntings, and he never had any paranormal problems. In fact, maybe Norman seems haunted because, as he pointed out, it is an old building. It creaks, moans, has stale air and even has rats from time to time. All of those things could explain lots of paranormal phenomena.
+
+Still, there was that girl’s voice. And there was that mysterious box. I’ve had a while to think about it, and I still can’t explain either of them.
 *** 
-	So is it possible that Norman Hall is truly haunted? Even though Lansford doesn’t yet believe it, it wouldn’t matter much to him.
+So is it possible that Norman Hall is truly haunted? Even though Lansford doesn’t yet believe it, it wouldn’t matter much to him.
+
 “I like working here and I figure they haven’t harmed anyone if they are here, so you know, we can cohabitate together if they’re there,” he says. 
+
 Owens feels similarly. “It doesn’t bother me, and I stay here after people have left.”
+
 If Norman Hall is haunted, then staying around the paranormal energy could be beneficial. According to Nichols, the best way to learn about parapsychology is to go out and try it. And it is the trained parapsychologist’s duty to provide a road map.
+
 “It is unlikely that mainstream science is going accept parapsychology anytime soon,” Nichols says. “That used to be our dream. It’s not going to happen.”
- “We are not going to be able to find evidence that is going to be convincing, not without significant changes in the level of technology. What parapsychologists can do is help people experience these things for themselves, so they can make their own judgments.”
+
+“We are not going to be able to find evidence that is going to be convincing, not without significant changes in the level of technology. What parapsychologists can do is help people experience these things for themselves, so they can make their own judgments.”
+
 Nichols does say that more individual scientists, if not science as a whole, are coming around to seeing his field as legitimate. 
+
 “These experiences are an important part of the human experience,” he says. “And no attempt to understand the human mind would be complete without considering these experiences.”
 
 Emilie Shinskie 
