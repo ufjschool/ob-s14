@@ -261,16 +261,24 @@ Nichols does say that more individual scientists, if not science as a whole, are
 
 “These experiences are an important part of the human experience,” he says. “And no attempt to understand the human mind would be complete without considering these experiences.”
 
-Emilie Shinskie 
-	I was curious, curious about who these people were and skeptical about what they did. 
-	I walked into the Engineering Building on the UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. 
-	On their website they claimed to be everyday people, passionate and interested in researching and investigating paranormal activity.  
-	Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a member of the non-profit organization, shook my hand kindly. 	They were much gentler-looking than I had imagined and professional. 
-	“ ‘ I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
-	 Boothby and Bolejack help explain the unexplainable. Along with the rest of their team, they investigate all things bizarre: the noises, the smells, the sightings. 
-	“It’s about helping people, helping them not be afraid in their own homes, giving them ways to deal with what’s going,” Boothby said. 
-	Humbled. That perfectly describes what I felt the rest of the evening. Boothby and Bolejack weren’t ghost hunters and they weren’t seeking a high or a thrill, but wanted to help people, people experiencing the abnormal, the paranormal.
-	“Paranormal activity is activity created by unknown forces that we do not understand,” Bolejack said. 
+#Emilie Shinskie 
+
+I was curious, curious about who these people were and skeptical about what they did. 
+
+I walked into the Engineering Building on the UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. 
+
+On their website they claimed to be everyday people, passionate and interested in researching and investigating paranormal activity.  
+
+Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a member of the non-profit organization, shook my hand kindly. 	They were much gentler-looking than I had imagined and professional. 
+“'I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
+
+Boothby and Bolejack help explain the unexplainable. Along with the rest of their team, they investigate all things bizarre: the noises, the smells, the sightings. 
+
+“It’s about helping people, helping them not be afraid in their own homes, giving them ways to deal with what’s going,” Boothby said. 
+
+Humbled. That perfectly describes what I felt the rest of the evening. Boothby and Bolejack weren’t ghost hunters and they weren’t seeking a high or a thrill, but wanted to help people, people experiencing the abnormal, the paranormal.
+
+“Paranormal activity is activity created by unknown forces that we do not understand,” Bolejack said. 
 	
 ***This is a basic intro for my section of the haunted story. I spent some time with the Florida Paranormal Investigators. They are a non-profit based out of Gainesville that investigates paranormal activity for the sole purpose of helping others. They were extremely interesting people. There is much more I need to flesh out (an hour and a half of interview audio to go through). After spring break, I plan to add more about why they do what they do, exactly what they do (what an investigation looks like, etc.), and their thoughts on paranormal activity. There is a small possibility that I will have a chance to witness an investigation as well and include that in my story.  My contribution isn’t very complete at this point but I think has the potential to be pretty cool. ***
 	
