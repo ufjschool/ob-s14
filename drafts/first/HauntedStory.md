@@ -143,7 +143,7 @@ But Daryl Bish, admissions coordinator for the institute, recalls a separate ins
 
 Owens, however, believes the stories. “Other people might say I’m crazy, but we’ve had things happen in our family, so I don’t doubt it at all.”
 *** 
-**7:15** – A girl’s voice.
+**7:15 p.m.** – A girl’s voice.
 
 It was soft and mumbled and really high-pitched, but I definitely heard a girl’s voice. It wasn’t in the hall either; it definitely sounded like it was being spoken into my mind.
 
@@ -157,7 +157,7 @@ Nichols’ specialty is in investigating haunting cases, and he once even receiv
 
 He says particularly violent or extreme events create longer-lasting impressions, as do repetitive events. He says most hauntings can last for decades or even centuries, as long as the building where the energy has imprinted remains.
 ***
-**7:30** – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: when you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
+**7:30 p.m.** – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: when you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
 
 Getting a little tired of sitting and waiting, I decide to explore some other areas of the building. I walk around the hall to find the elevator. When the doors open, a loud bell dings. I would have definitely heard that from where I was sitting. That means what I was hearing wasn’t the elevator. 
 
