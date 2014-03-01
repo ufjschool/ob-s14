@@ -1,5 +1,5 @@
 Religion and the Paranormal
-
+	
 	
 	In a world where rationalism dominates the scientific discussion, the paranormal is relegated to the fringe. After all, how can something that can’t be observed with repeatable testing and study be real?
 	And yet, there are still numerous sightings of ghosts, and people who communicate with the dead are television stars. According the Andrew Nichols, president of the American Institute of Parapsychology, about 75 percent of the American public has reported having some kind of extra-sensory experience.
