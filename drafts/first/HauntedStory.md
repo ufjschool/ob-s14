@@ -52,8 +52,11 @@ James Thieke
 James W. Norman Hall houses the University of Florida’s College of Education, named for the man who was the college’s dean from 1920 to 1941. The naming occurred in 1958, but the building itself opened in 1934. At that time, it housed P.K. Yonge Laboratory School, and rumors abound that an incident during that time has left Normal Hall haunted ever since.
 
 “The legend is that, one day, three students got on the elevator when they weren’t supposed to,” says Larry Lansford, explaining that the old-style elevator was for faculty and staff only. “It went wrong, fell from the top to the bottom floor, and they were killed in it. So the legend is those three children are the ghosts of Norman Hall.”
+
 He hands me a copy of an article he wrote about the legend for the summer 2005 edition of “Education Times.” He emphasizes that there is no written record confirming the validity of the legend, but he also concedes that there are many strange stories reported around Norman Hall.
+
 A campus police officer quit his job after once, during an inspection, he found a room with a perfectly made bed, which upon his return in the morning had had its sheets tossed about, despite the door remaining locked. Two female students both reported feeling a presence in the first-floor unisex bathroom that brought them near tears. And people repeatedly claim to hear strange sounds and feel unusual presences on the third floor, especially by the water fountain. 
+
 “I’ve never experienced any of it,” Lansford says. “I keep an open mind, but until I experience it, I’ll believe it when I see it.”
 ***
 I volunteered to visit Norman Hall for my magazine team. While some people might shy away from haunted places, we are curious journalists, so naturally, we purposely go and hope to find some ghosts. My mission is to see if I experience similar phenomena as the people who report paranormal experiences. 
@@ -67,7 +70,9 @@ As I walk over to the water fountain, its cooling compressor shuts off, leaving 
 I put down my backpack and my umbrella and slouch against the wall next to the fountain. It’s now 6:45 p.m., and the sky outside is dark. The hallway is still deserted. I take a couple deep breaths and close my eyes.
 *** 
 “Which way means yes?” The pendulum swings up and down.
+
 “Which way means no?” It swings left and right.
+
  “I don’t know?” It starts swinging in a circle.
 
 It’s about three weeks earlier, and I’m sitting in the office of Dr. Andrew Nichols, a famous parapsychologist. In my hand, a pendulum is swinging different ways depending on the questions I ask it. It gets each one right.
@@ -86,35 +91,57 @@ He also recommends to sit in dim lighting and to go to the place where haunting 
 *** 
 7:00 p.m. – The water fountain cooler kicks on with a snap and nearly gives me a heart attack. I had been close to dozing off. I am still very alone. The only indication that other people might be in the building are faint sounds to my right that sound like an elevator. To my left, as I had first started to drift off, I had heard a sound like a rattling of a small chain. I’m not sure what that could have been. Other than those sounds and the low hum of the air conditioner, it is still very quiet. I scribble down some notes on a sheet of paper and then close my eyes once again. 
 *** 
-	I have a mixed background in the paranormal. My parents and my father’s side of the family are exclusively scientists. My mother’s side of the family is descended from gypsies, visits mediums on a regular basis and explores the mysticism of various cultures. I am also a devout Christian. So I have lots of conflicting influences when it comes to seeing ghosts.
-	The truth is, I want to believe. Even though every scientific bone in my body is screaming fraud, the concepts of spirits and psychic powers is too alluring for me to pass up. I believe that God exists; why not spirits as well?
-	So when Karen Owens, office manager of the English Language Institute, which happens to be located on the third floor of Norman Hall, tells me her family has a long history with the paranormal, I believe what she tells me.
-	“Someone that I know,” she says, “they’ve seen a little girl, down at the other end of the hall, when the old elevator still worked.” 
+I have a mixed background in the paranormal. My parents and my father’s side of the family are exclusively scientists. My mother’s side of the family is descended from gypsies, visits mediums on a regular basis and explores the mysticism of various cultures. I am also a devout Christian. So I have lots of conflicting influences when it comes to seeing ghosts.
+
+The truth is, I want to believe. Even though every scientific bone in my body is screaming fraud, the concepts of spirits and psychic powers is too alluring for me to pass up. I believe that God exists; why not spirits as well?
+
+So when Karen Owens, office manager of the English Language Institute, which happens to be located on the third floor of Norman Hall, tells me her family has a long history with the paranormal, I believe what she tells me.
+
+“Someone that I know,” she says, “they’ve seen a little girl, down at the other end of the hall, when the old elevator still worked.” 
+
 “When they go to the water fountain they can feel it, they can feel the presence. They won’t go anywhere near the elevator to this day, and they’re an adult now.” 
+
 Claiming to have seen a full human ghost is tough to explain as something else. While sounds and presences can be blamed on the wind and emotions, reports of visions tend to be passed off as lies, because the only other “scientific” explanation is hallucination.  
+
 But Daryl Bish, admissions coordinator for the institute, recalls a separate instance, where a teacher quit after swearing to have seen a little girl in the same hall. He doesn’t believe it though.
+
 “It’s just a fun story,” he says of the haunting rumors. “I’ve been here at 1 a.m. It is creepier, no doubt.”
 Owens, however, believes the stories. “Other people might say I’m crazy, but we’ve had things happen in our family, so I don’t doubt it at all.”
 *** 
 7:15 – A girl’s voice.
-	It was soft and mumbled and really high-pitched, but I definitely heard a girl’s voice. It wasn’t in the hall either; it definitely sounded like it was being spoken into my mind.
-	Now I’m wide awake and not sure if I could have been dreaming. I was definitely a little spaced out, but I think I was still somewhat lucid. I definitely heard someone talking, and it was not like hearing someone from far away or from down the hall. It was like another voice just started speaking in my thoughts. 
-	I try to relax and slip back into my necessary state of mind, but I can’t stop thinking about the voice. For the first time tonight, I can hear my heart beating.
+
+It was soft and mumbled and really high-pitched, but I definitely heard a girl’s voice. It wasn’t in the hall either; it definitely sounded like it was being spoken into my mind.
+
+Now I’m wide awake and not sure if I could have been dreaming. I was definitely a little spaced out, but I think I was still somewhat lucid. I definitely heard someone talking, and it was not like hearing someone from far away or from down the hall. It was like another voice just started speaking in my thoughts. 
+
+I try to relax and slip back into my necessary state of mind, but I can’t stop thinking about the voice. For the first time tonight, I can hear my heart beating.
 ***
-	Nichols’ specialty is in investigating haunting cases, and he once even received a research grant from the Institute for Frontier Areas of Psychology and Mental Health. Nichols says that hauntings aren’t necessarily caused by spirits.
-	“They are a residue of past events, imprinted into the environment, that people pick up on,” he says. “Think of the house as a DVD. The energy we emit from our bodies saturates our surroundings, which includes information about your personality, memories and more, that it records on our surroundings.”
-	He says particularly violent or extreme events create longer-lasting impressions, as do repetitive events. He says most hauntings can last for decades or even centuries, as long as the building where the energy has imprinted remains.
+Nichols’ specialty is in investigating haunting cases, and he once even received a research grant from the Institute for Frontier Areas of Psychology and Mental Health. Nichols says that hauntings aren’t necessarily caused by spirits.
+
+“They are a residue of past events, imprinted into the environment, that people pick up on,” he says. “Think of the house as a DVD. The energy we emit from our bodies saturates our surroundings, which includes information about your personality, memories and more, that it records on our surroundings.”
+
+He says particularly violent or extreme events create longer-lasting impressions, as do repetitive events. He says most hauntings can last for decades or even centuries, as long as the building where the energy has imprinted remains.
 ***
 7:30 – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: when you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
-	Getting a little tired of sitting and waiting, I decide to explore some other areas of the building. I walk around the hall to find the elevator. When the doors open, a loud bell dings. I would have definitely heard that from where I was sitting. That means what I was hearing wasn’t the elevator. 
-	The doors open and I step out on the first floor. Norman Hall is starting to make me paranoid. My heart skips a beat every time I open a door or turn a corner. So far I haven’t encountered anything or anyone else. That changes quickly as I hear a cough. 
-	I follow the sound of coughing to a break room with vending machines. At the other end of the room sits a man working on a laptop. I decide to approach him and tell him about my mission. He says I’m the only other person he’s seen in the last few hours. 
+
+Getting a little tired of sitting and waiting, I decide to explore some other areas of the building. I walk around the hall to find the elevator. When the doors open, a loud bell dings. I would have definitely heard that from where I was sitting. That means what I was hearing wasn’t the elevator. 
+
+The doors open and I step out on the first floor. Norman Hall is starting to make me paranoid. My heart skips a beat every time I open a door or turn a corner. So far I haven’t encountered anything or anyone else. That changes quickly as I hear a cough. 
+
+I follow the sound of coughing to a break room with vending machines. At the other end of the room sits a man working on a laptop. I decide to approach him and tell him about my mission. He says I’m the only other person he’s seen in the last few hours. 
+
 I ask him when UFPD locks the doors, and he says that they usually come at 11 p.m. He says he studies here often, and that he’s sometimes managed to stay until 1 a.m. without a problem. 
+
 The prospect of an overnight stay is enticing, but Norman Hall is wearing on me. Every minute staying by that water fountain gets harder and harder. Walking the halls is unsettling. The stairs feel claustrophobic. I decide not to stay any longer than I originally planned. 
+
 I pay the unisex bathroom on the first floor a visit. The two girls Lansford described were shaken to tears by this bathroom. I expect to feel the same creepiness I did by the water fountain, but it’s actually a fairly comforting place. It’s a large, bright bathroom with plenty of space and working amenities. If it is haunted, I don’t feel it.
+
 Eventually I make my way back up to the third floor by route of the stairs at the other end of the building. By the time I sit down again it is 7:45 p.m. Looking around, I remember that Dr. Nichols advised me to be in dimly lit settings. The lights in the hallways are all still glowing bright.
+
 I walk over to my left and flick one switch. The hallway to my left goes dark. There is still a bright light at the end of it, so I walk down and flick that light off too. I go to the right of the water fountain and turn out the light above that hallway.
+
 Only the light in the center room remains on. After some searching, I go out to the stairwell and find that switch as well.
+
 Now it is very dark. And I as I sit back down, I actually feel consciously afraid.
 *** 
 	Have you ever had any kind of paranormal experiences here? I ask Owens.
