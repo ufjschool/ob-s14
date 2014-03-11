@@ -1,4 +1,3 @@
-
 Here’s a fun fact: Florida state law does not require sexual health education to be medically accurate. (1) 
 
 That’s not to say that Everything You Know About Sex is Wrong, but if you attended public school in Florida or in any of the other 36 states that care more about age appropriateness (2) than facts, there might be a few gaps in your knowledge. 
