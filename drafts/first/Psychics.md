@@ -4,7 +4,9 @@ Some call it extra-sensory perception. Some claim it is a sort of sixth sense. O
 
 Whatever the view one may take, it’s undeniable that there are many people who claim to have a variety of special powers that let them perceive beyond what the normal human can experience.  
 
-There are energy readers who have the ability to see and manipulate the energy around humans. Psychics and fortunetellers will predict the future. Mediums will communicate with the dead and relay messages to the living. 
+There are energy readers who have the ability to see and manipulate the energy around humans. 
+
+Psychics and fortunetellers will predict the future. Mediums will communicate with the dead and relay messages to the living. 
 
 Their methods often range from eccentric to entirely nebulous, which is why there are so many who doubt the validity of their claims. These powers also have very little in the way of hard scientific support. 
 
