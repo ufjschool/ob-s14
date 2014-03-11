@@ -18,12 +18,19 @@ According to Samantha Evans, sexual health educator at GatorWell Health Promotio
 
 Among these are: (4)
 •	Increased libido – “The more frequently you have sex, the better sex feels,” Evans said. This increase in libido is especially helpful for women who are on hormonal contraception or who are perimenopausal. 
+
 •	Calorie burning – “It’s not going to replace lifting weights or going to a yoga class, but there are studies that say you can burn five calories a minute,” Evans said.
+
 •	Increased heart function (and possibly the function of specific muscles, depending on the vigor of the sex act, positions used, and other factors)
+
 •	Lowered blood pressure 
+
 •	Lowered risk of heart attack and prostate cancer
+
 •	Balanced hormone levels
+
 •	Increased immune system function
+
 •	Lowered stress and improved sleep
 
 If abstinence is an individual’s choice, that’s not to say they should run out and start having sex or else they’ll get sick and die. Risks related to STIs, UTIs and pregnancy are a reality. But abstinence-only education does not arm adolescents with the knowledge to prevent these things. Some research has shown that abstinence-only strategies might even be deterring contraceptive use among sexually active teens. (5) 
@@ -69,9 +76,13 @@ Be promiscuous; be celibate; be something in between. But know your resources, k
 ***
 Wasn’t sure if I could put hyperlinks in here, so in order, here are my sources for these:
 1) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 3)
+
 2) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 1)
+
 3) http://www.siecus.org/_data/global/images/FL%20Report%20-%20Sex%20Education%20in%20the%20Sunshine%20State.pdf
+
 4) http://www.webmd.com/sex-relationships/guide/sex-and-health (I got all these bullet points from Samantha Evans first, but confirmed them using Internet sources like this one)
+
 5) http://www.guttmacher.org/pubs/FB-Teen-Sex-Ed.html
 
 I will work on integrating these sources into the article (because obviously I can’t use hyperlinks in print) but I wanted to have my sources easily accessible for now.
