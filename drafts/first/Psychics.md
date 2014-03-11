@@ -2,7 +2,7 @@
 
 Some call it extra-sensory perception. Some claim it is a sort of sixth sense. Others call it fake and a form of deception.
 
-Whatever the view one may take, it’s undeniable that there are many people who claim to have a variety of special powers that let them perceive beyond what the normal human can experience.  
+Whatever the view one may take, it is undeniable that there are many people who claim to have a variety of special powers that let them perceive beyond what the normal human can experience.  
 
 There are energy readers who have the ability to see and manipulate the energy around humans. 
 
