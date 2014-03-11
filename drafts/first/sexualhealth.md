@@ -17,6 +17,7 @@ This is a straight-up lie.
 According to Samantha Evans, sexual health educator at GatorWell Health Promotion Services, healthy sexual activity (i.e. in a setting where you’re comfortable, not being coerced) can have positive effects on the body and mind. 
 
 Among these are: (4)
+
 •	Increased libido – “The more frequently you have sex, the better sex feels,” Evans said. This increase in libido is especially helpful for women who are on hormonal contraception or who are perimenopausal. 
 
 •	Calorie burning – “It’s not going to replace lifting weights or going to a yoga class, but there are studies that say you can burn five calories a minute,” Evans said.
@@ -75,6 +76,7 @@ Be promiscuous; be celibate; be something in between. But know your resources, k
 
 ***
 Wasn’t sure if I could put hyperlinks in here, so in order, here are my sources for these:
+
 1) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 3)
 
 2) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 1)
