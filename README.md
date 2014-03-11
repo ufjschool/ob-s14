@@ -13,6 +13,7 @@ Orange &amp; Blue issue for Spring 2014
 ### Executive Editor 
 
 * Viana Bhagan
+* James Thieke
 
 ### Art Directors
 
@@ -36,7 +37,7 @@ Orange &amp; Blue issue for Spring 2014
 * Mary Reyes
 * Deanna Shahnami
 * Natanya Spies
-* James Thieke
+* Katherine Hahn
 
 ### Writers
 
