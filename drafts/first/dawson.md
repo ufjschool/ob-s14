@@ -1,11 +1,18 @@
-	Over the past few decades, a large number of different fitness programs have emerged. People have tried everything from yoga, to aerobic conditioning to strength training in order to increase their energy levels as well as their overall fitness. 
-	As of recent, Crossfit has made a large appearance in the fitness world. All of the country, people are using Crossfit to gain energy and become stronger. Every day, someone is training to compete in a Crossfit competition, but many people do not understand all of the aspects that go in to Crossfit competition training. 
-	I spoke with one Crossfit trainer who allowed me to enter her life for a day, and explain the 
-	Jenna Starkey, 22, is currently training for her second Crossfit competition. 
+Over the past few decades, a large number of different fitness programs have emerged. People have tried everything from yoga, to aerobic conditioning to strength training in order to increase their energy levels as well as their overall fitness. 
+
+As of recent, Crossfit has made a large appearance in the fitness world. All of the country, people are using Crossfit to gain energy and become stronger. Every day, someone is training to compete in a Crossfit competition, but many people do not understand all of the aspects that go in to Crossfit competition training. 
+
+I spoke with one Crossfit trainer who allowed me to enter her life for a day, and explain the 
+
+Jenna Starkey, 22, is currently training for her second Crossfit competition. 
+
 Starkey began joining Crossfit classes with her brother Alex, 18, after he had participated in multiple classes and explained to her the amazing feeling he felt after every class he attended. 
-	Starkey began in the Summer of 2013 at Gardens Crossfit, located in Palm Beach Gardens, Fla. 
-	“I loved it so much that I knew I had to keep doing Crossfit when I came back to Gainesville,” she said. “When I came here and found Gator Crossfit, I was so happy that I’d be able to continue my work.” 
-	Starkey went on to compete in her first competition at Gator Crossfit Games. In the competition, Starkey placed second in her age group. 
+
+Starkey began in the Summer of 2013 at Gardens Crossfit, located in Palm Beach Gardens, Fla. 
+	
+“I loved it so much that I knew I had to keep doing Crossfit when I came back to Gainesville,” she said. “When I came here and found Gator Crossfit, I was so happy that I’d be able to continue my work.” 
+
+Starkey went on to compete in her first competition at Gator Crossfit Games. In the competition, Starkey placed second in her age group. 
 	“You definitely need a lot of energy for Crossfit,” she said. “A lot of intensive training goes into this, so I always make sure I’ve had enough protein before and after I work out every day.”
 	Every morning before she laces up her Nike sneakers and heads to Gator Grossfit, Starkey drinkns a cookies n crème flavored protein shake. 
 	“They’re not as bad as most people would think,” she said. “They defeinitely keep me feeling strong, healthy and ready to work hard.” 
