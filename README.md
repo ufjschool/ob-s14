@@ -1,6 +1,8 @@
 Orange &amp; Blue issue for Spring 2014
 =================================================
 
+[This is how we edit](https://vimeo.com/89416125)
+
 # Energy
 
 ## Staff
