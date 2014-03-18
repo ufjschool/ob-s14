@@ -1,4 +1,4 @@
-# UPD's Rape Aggression Defense Program Lets Women Call the Shots
+# Rape Aggression Defense Program Lets Women Call the Shots
 
 Hulking toward her in the darkness, the faceless aggressor takes many forms.
 For one woman, he is the high school football player she couldn’t push away at age 16. For another, he represents not one person but the three boys who surrounded her and beat her up one night in middle school. For most, he is an unknown attacker who may not exist but haunts her imagination, always close behind in a parking lot.
