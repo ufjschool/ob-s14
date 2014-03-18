@@ -8,7 +8,7 @@ Ghost stories are strange animals. Year after year you hear them in different vo
 
 Tracing its roots back before the Civil War, the University of Florida has quite a past. This university has seen world wars and world peace, segregation and integration. It’s seen national championships. And like anything of a great age, this university has seen death. Lots of death.
 
-With death and history comes the inevitable – the ghost story. 
+With death and history comes the inevitable –- the ghost story. 
 
 ###BEATY 
 
