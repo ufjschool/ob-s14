@@ -1,8 +1,8 @@
  [TITLE] Title suggestion: Learn More about Sex Beyond the Abstinence-Only Education 
 
-Here is a fun fact: Florida state law does not require sexual health education to be medically accurate. (1) 
+Here's a fun fact: Florida state law does not require sexual health education to be medically accurate. (1) 
 
-That is not to say that Everything You Know About Sex is Wrong, but if you attended public school in Florida or in any of the other 36 states that care more about age appropriateness (2) than facts, there might be a few gaps in your knowledge. 
+That is not to say that everything you know about sex is wrong, but if you attended public school in Florida or in any of the other 36 states that care more about age appropriateness (2) than facts, there might be a few gaps in your knowledge. 
 
 The scare tactics favored by many public school health programs, also known as the “don’t have sex or you’ll get pregnant and die” approach, have their roots in the Reagan era. The Reagan administration began putting all their money and support behind abstinence-only-until-marriage programs. 
 
