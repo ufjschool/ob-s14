@@ -55,9 +55,9 @@ Orange &amp; Blue issue for Spring 2014
 
 ### Coffee
 
-* Design: 
-* Editing: 
-* Writing:
+* Design: Maria Galindo
+* Editing: Alexa Volland
+* Writing: Adam Lichtenstein
 
 ### Haunted
 
@@ -73,20 +73,18 @@ Orange &amp; Blue issue for Spring 2014
 
 ### Sex
 
-* Design: 
-* Editing: 
-* Writing: 
+* Design: Yaisee Solis
+* Editing: Deanna Shahnami
+* Writing: Katina Prokos and Brittany Bozkam
 
 ### Off the grid
 
-* Design: 
-* Editing: 
-* Writing: 
+* Design: Bakr Muhammad
+* Editing: Mary Reyes
+* Writing: Adam Pincus
 
 ### Athlete
 
-* Design: 
-* Editing: 
-* Writing: 
-
-
+* Design: Sarah Brand
+* Editing: Amber Dawson 
+* Writing: Sarah Davis and Devon Abelman
