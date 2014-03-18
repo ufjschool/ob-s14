@@ -95,28 +95,22 @@ He also noted how, in medicine, energy healing is available for registered nurse
 ##Carolyn Green: Energy Nurse
 
 The one word she described her work: fascinating.
-
 She is not just any type of nurse. 
-
 Carolyn Green is the official “Energy Nurse.”
-
-Green assists in balancing the energy field in one’s body, also commonly known as the auric field.  The energetic system has an anatomy of its own.
-
+Green assists in balancing the energy field in one’s body, also commonly known as the auric field.  The energy system goes much deeper than just the field around them. It has an anatomy of its own.
 “The advantage to that, is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
-
-From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. 
-
-“It is like taking your basic senses to the second floor,” Green said. 
-
+Green received her RN at Seminole State College in 1983. She became certified in Healing Touch in 2010 while working on her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
+	From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. By the age of 12, Green she started to see energy around things. 
 This ability was something she understood later on in life as functioning on a higher frequency level.  Today they refer to it more as HSP, higher sensory perception. 
-
-* Jewish, believe in one God
-
-* Works with a collective of over 20 angels and guides, to tune into, for info on the healing process of my patients. 
-
-* Does a lot of grief work as well, since many departed loved ones make their presence known to me to help their family who are still grieving.
-
-* Author of Getting to Know You: Guided Pearls; wrote the book because “The Spirit moved me!” channeled messages from a spirit that became the book, which was written in four months. 
-
-* In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual body. 
-
+“It is like taking your basic senses to the second floor,” Green said. 
+Green practices the Jewish faith and believes in one God. While using a crystal pendulum to assess the person’s energy field, Green worked with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She used her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. 
+“It is the ultimate cellphone connection,” Green said.
+Green also does grief work since many departed loved ones make their presence known to her to help their family still grieving.
+Whether it is grief work or a serious illness, many people see Green as a last resort to maintain his or her health in a natural way. Energy work fits with western methods, because it accelerates the healing process of someone going through medical treatments. It balanced their system quicker to decrease their medication dosage. She advised her clients to continue all prescribed medication and to inform the doctor if they note any changes. 
+She is now the author of Getting to Know You: Guided Pearls of Wisdom for a More Soulful Experience. 
+“The Spirit moved me,” Green said.
+About 14 years ago, she channeled messages from a spirit that she thought were messages, which turned out to be the book. The book was written in four months. In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual body. 
+A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
+Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. 
+On her down time, Green works at the Apopka Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband and three children. She anticipates writing another book in a couple of years. 
+“We are amazing beings with all the answers within ourselves to lead a healthy and productive life,” Green said. 
