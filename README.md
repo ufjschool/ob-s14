@@ -50,3 +50,43 @@ Orange &amp; Blue issue for Spring 2014
 ### Adviser
 
 * [Dave Stanton](https://github.com/gotoplanb/)
+
+## Groups
+
+### Coffee
+
+* Design: 
+* Editing: 
+* Writing:
+
+### Haunted
+
+* Design: Adam Pincus
+* Editing: James Thieke
+* Writing: Katherine Hahn and Emilie Shinskie
+
+### Medium
+
+* Design: Bakr Muhammad
+* Editing: Vianna Bhagen
+* Writing: Deanna Shahnami and James Thieke
+
+### Sex
+
+* Design: 
+* Editing: 
+* Writing: 
+
+### Off the grid
+
+* Design: 
+* Editing: 
+* Writing: 
+
+### Athlete
+
+* Design: 
+* Editing: 
+* Writing: 
+
+
