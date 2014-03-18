@@ -75,7 +75,13 @@ He’s the guy on the court before the game stretching the guys out that all the
 This relationship begins when incoming freshmen enroll for Summer B. Throughout voluntary off-season training sessions, Greene begins to evaluate each player and creates a personal program for each player to fix what he calls their “weak link.” The way each player runs, how they condition, how they move on the court and what position they play are all taken into consideration. With each season, the training program is altered as the players grow and improve. After the season is over, Greene meets with Head Coach Billy Donovan and the coaching staff to set goals for each player. Optimal body weights are their focus. 
 “I want my guys to be very,very lean,” Greene stressed, “because the leaner or less body fat they have, for basketball, the quicker they are and the higher they can jump. If a guy has, in my opinion, a higher body fat than I would like, then I will determine his body weight off of that. Or if a guy is already lean and he’s at the weight that I want." 
 
-EXAMPLE WITH WILL 
+Will Yeguete, AGE, however, didn't have an introductory Preston session when he started at UF in 2010. With a different strength and conditioning coordinator on staff, he suffered injury after injury: concussions, knee problems. Sophomore year, with Preston on staff, Will saw a drastic change in his body. 
+
+"I learned so much more about my body -- how the stretching works, eating well. Preston knows a lot about the body, and he's good about sharing those things with us. He gives us a lot of advice about preparing our bodies for each season." 
+
+"He's there every single day for us if we need anything." 
+
+TRANSITION 
 
 Greene compares the process to that of getting your car aligned. Just as you let go of your steering wheel to see what direction your car goes in, basketball players are the same way in the way they move on the court and in the weight room. 
 
@@ -83,11 +89,17 @@ Greene compares the process to that of getting your car aligned. Just as you let
 
 After a head-to-toe breakdown on each guy of their tightest and weakest spots, Greene prescribes certain exercises, movements, sets and reps to align each player's steering wheel. 
 
-Throughout year, Greene's role changes. After assessments in the pre-season, Greene said, “I am just smashing these guys physically and mentally each and every day without basically a whole lot of basketball involved." He meets with them in training groups made up of six groups of two players based on the goals of the players. During the season, once the basketball is in their hands again, Greene has to ease up, and training groups consolidate to three or four guys in a group. 
+For Will, junior year he had to lose weight. 
+
+"I was about 240 and the goal was 222. ----- more." 
+
+TRANSITION 
+
+Greene's role changes depending what time of year it is. After assessments in the pre-season, Greene said, “I am just smashing these guys physically and mentally each and every day without basically a whole lot of basketball involved." He meets with them in training groups made up of six groups of two players based on the goals of the players. During the season, once the basketball is in their hands again, Greene has to ease up, and training groups consolidate to three or four guys in a group. 
 
 “Priority at that time is winning games, practicing and being ultra competitive on the court," Greene ----, "so I can’t do a whole lot with them during that time frame. If I am smashing them and killing those guys, then Coach Donovan is going to be pretty upset at me because we aren’t going to be our best come game time.” 
 
-With the Gators undefeated for SEC conference games, Greene is ecstatic. His positive energy is a staple for the team, though -- win or lose. 
+With the Gators having one of the best seasons in the team's history, Greene is ecstatic. His positive energy is a staple for the team, though -- win or lose. 
 
 “One way I’ve been successful is I’m very, very energetic and very passionate about what we do," he ---, "so when my guys come in to train, they tend to feed off my energy. When they come in, I’m ready to go right off the bat.”
 
