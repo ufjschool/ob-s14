@@ -36,7 +36,7 @@ Exclusive focus on STIs in health education detracts from time spent discussing 
 
 The problem is that peers and unreliable sources on the Internet spread misinformation.  
 
-Common myths Evans has frequently encountered in students include the idea that using more than one condom at a time increases protection and that the hymen always tears the first time someone has sex. Using two condoms at once makes it more likely that the condoms will break. And the hymen does not need to tear – just stretch. Sufficient preparation, patience and a little bit of lube can easily prevent pain and tearing, no matter how inexperienced an individual may be.
+Common myths Evans has encountered in students include the idea that using more than one condom at a time increases protection and that the hymen always tears the first time someone has sex. Using two condoms at once makes it more likely that the condoms will break. And the hymen does not need to tear – just stretch. Sufficient preparation, patience and a little bit of lube can easily prevent pain and tearing, no matter how inexperienced an individual may be.
 
 During her time with Voices for Planned Parenthood, Brianne has had similar experiences with undereducated students. 
 
