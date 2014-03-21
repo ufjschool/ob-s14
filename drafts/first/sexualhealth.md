@@ -40,7 +40,7 @@ Common myths Evans has encountered in students include the idea that using more 
 
 During her time with Voices for Planned Parenthood, Brianne has had similar experiences with undereducated students. 
 
-Its primary forms of outreach are setting up tables with information around campus and Condom Crawls, during which VOX members make small bags of condoms, lube and candy to hand out around midtown and downtown Gainesville on Friday nights. They also give out condoms at events on campus. On Valentine’s Day, they distributed almost 1,500 condoms. 
+VOX's primary forms of outreach are tables with information around campus and Condom Crawls, during which VOX members make small bags of condoms, lube and candy to hand out around midtown and downtown Gainesville on Friday nights. They also give out condoms at events on campus. On Valentine’s Day, they distributed almost 1,500 condoms. 
 
 Table space on campus is an opportunity for members to speak at length with students. Their tables are decorated with two realistic dildos and a vulva model, used to demonstrate the correct way to use condoms and some of the basics of anatomy.
 
