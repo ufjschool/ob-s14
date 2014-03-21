@@ -12,7 +12,7 @@ Top five on the Penn cross-country team as a freshman, Steel had set high standa
 
 “I didn't even have track to give me some sense of fulfillment,” she said. “During this month or so, I decided I was going to channel that frustration into eating healthy.”
 
-Slowly shedding pounds, Steel had begun to improve on the track. But eight months later, what had started as good intentions left her with her weight and GPA dropping faster than snow in Philly a December day.  
+Slowly shedding pounds, Steel had begun to improve on the track. But eight months later, what had started as good intentions left her with her weight and GPA dropping faster than snow in Philly on a December day.  
 
 “I didn’t weigh myself everyday, but I knew,” she said. “I started avoiding people – and doing these things I would not normally do.”<< Need specifics!!!
 
