@@ -1,8 +1,11 @@
 (Part of sex group)
 
 Some notes/disclaimers: 
+
 -I ended up doing it as like... two separate in-depth profiles. in my head I imagine them appearing in side-by-side columns on one page, like "a tale of two drag queens" sort of thing? if that makes sense. (that's not necessarily a design suggestion, just a this-is-where-my-brain-went note so that you have some idea of where I was going with this thing). But if this doesn't work please let me know so I can do a total overhaul of the whole thing. 
+
 -there are past/present tense issues I'll fix later, so don't worry about going through and trying to change all of those. Tell me which you prefer, though. 
+
 -I need to finish off Chastity's section and Possibly make jazzmine's a little longer, since they're uneven right now in terms of length. So those are the content things that will be fixed by the end of this week.
 
 [TITLE]
