@@ -13,6 +13,7 @@ For almost 2 years.
 
 
 Q: Why Bay Island? What makes it different?
+
 A: Because we’ve got the best stuff in town. We’ve got the best ingredients, and we order in small quantities so everything is fresh.
 
 Q: What’s the best part about working at Bay Island?
