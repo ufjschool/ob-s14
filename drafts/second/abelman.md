@@ -9,15 +9,15 @@ He didn't get in an accident. Nothing had to be operated on. No apparent injurie
 
 "I never, ever, ever thought I would end up in a hospital, never," he remarked in a phone interview. "I didn’t even know that kind of stuff happened." 
 
-No one would expect "that kind of stuff" to happen to a guy who boasts positive energy as a mantra and makes a living off making people laugh. Certainly a guy who is seemed like he radiated happiness at his career trajectory from audience warmup for shows like Chelsea Lately and --- to hosting TMZ,performing at festivals all around the country and about to tape a show for HBO wouldn't threaten people with talk of guns on Twitter. 
+No one would expect "that kind of stuff" to happen to a guy who boasts positive energy as a mantra and makes a living off making people laugh. Certainly a guy who is seemed like he radiated happiness at his career trajectory from audience warmup for shows like Chelsea Lately and --- to hosting TMZ,performing at festivals all around the country, appearing in movies like "The Hangover" and about to tape a show for HBO wouldn't threaten people with talk of guns on Twitter. 
 
-*** MOVE***** Rock bottom was trying to pass off his mania as performance act and everyone believing it was all part of his act until guns where metioned. Rock bottom was getting detained by police after getting out of the shower. 
+However, rock bottom was trying to pass off his mania as performance act of spreading positive energy in confortational rants on Twitter, in person and via voicemail and everyone believing it was all part of his act until guns where metioned. Rock bottom was getting detained by police after getting out of the shower. 
 
 “I was on a streak," Brody revealed. "I was on a hot streak, and I was feeling good."
 
-The 43-year-old, born Steven Brody, grappled with anxiety for --- years before going on medication to control it. But in 2011, medication no longer seemed necessary to him as ------. 
+The 43-year-old, born Steven Brody, grappled with anxiety for --- years before going on medication to control it. But in 2011, medication no longer seemed necessary to him as he buzzed with feelings of victory and success. 
 
-Stopping abruptly sent Brody's hot streak into a total meltdown, and everyone knew about it. His manic episode was out in the world for everyone to see with the help of Twitter and viral videos. In his own words, he was going nuts. EXAMPLES 
+Stopping abruptly sent Brody's hot streak into a total meltdown, and everyone knew about it. His manic episode was out in the world for everyone to see with the help of Twitter and viral videos. In his own words, he was going nuts.  Under his Twitter handle, @allthingsbrody,  EXAMPLES 
 
 His friend, actor Zach Galifianakis, stepped in after getting strange voicemails from his friend. 
 
