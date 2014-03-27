@@ -1,17 +1,17 @@
 ##MEN'S BASKETBALL 
 
-When the Gators took on the Kentucky Wildcats at Rupp Arena on Febraruary 15, ESPN displayed before and after pictures of UF seniors Will Yeguete, Casey Prather and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think that Michelangelo sculpted them himself. Those three men who were once lanky are now some of the strongest men in the nation for college men’s basketball. All are a product of Preston Greene’s training programs. 
+When the Gators took on the Kentucky Wildcats at Rupp Arena on Febraruary 15, ESPN displayed before and after pictures of UF seniors Will Yeguete, Casey Prather and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think that Michelangelo sculpted them himself. Those three men who were once lanky are now some of the strongest in the nation for college men’s basketball. All are a product of Preston Greene’s training programs. 
 
-Greene, AGE, has been the team’s strength and conditioning coordinator for three seasons. Every day, year round, he’s with the team making them stronger, more flexible and faster than the day they were recruited.  
-
-He’s the guy on the court before the game stretching the players out who all the girls wish they could be. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is, literally, the most hands on. 
+Greene, AGE, has been the team’s strength and conditioning coordinator for three seasons. Every day, year round, he’s with the team making them stronger, more flexible and faster than the day they were recruited. He’s the guy on the court before the game stretching the players out who all the girls wish they could be. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is, literally, the most hands on. 
 
 This relationship begins when incoming freshmen enroll for Summer B. Throughout voluntary off-season training sessions, Greene begins to evaluate each player and creates a personal program for each player to fix what he calls their “weak link.” The way each player runs, how they condition, how they move on the court and what position they play are all taken into consideration. With each season, the training program is altered as the players grow and improve. After the season is over, Greene meets with Head Coach Billy Donovan and the coaching staff to set goals for each player. Optimal body weights are their focus. 
 
 “I want my guys to be very,very lean,” Greene stressed, “because the leaner or less body fat they have, for basketball, the quicker they are and the higher they can jump. If a guy has, in my opinion, a higher body fat than I would like, then I will determine his body weight off of that. Or if a guy is already lean and he’s at the weight that I want." 
 
-Will Yeguete, AGE, however, didn't have an introductory Preston session when he started at UF in 2010. With a different strength and conditioning coordinator on staff, he suffered injury after injury: concussions, knee problems. Sophomore year, with Preston on staff, Will saw a drastic change in his body. 
-^^Add specific knee problems
+Will Yeguete, AGE, however, didn't have an introductory Preston session when he started at UF in 2010. With a different strength and conditioning coordinator on staff, the 6-foot-7 forward suffered injury after injury: concussions, a broken foot,and knee problems. In 2013, he underwent several arthroscopic surguries to remove bone chips in his right knee.  
+
+DIFFERENT -- how his body changed post-injury 
+Then ------ with Preston on staff, Will saw a drastic change in his body. 
 
 "I learned so much more about my body -- how the stretching works, eating well," Yeguete said. "Preston knows a lot about the body, and he's good about sharing those things with us. He gives us a lot of advice about preparing our bodies for each season." 
 
@@ -24,12 +24,6 @@ Greene compares the process to that of getting your car aligned. Just as you let
 "Guys may be quicker to their right than they are to their left," Greene explained. "They may be tighter in one muscle than another one that works synergistically with the other. They may be stronger in one part of the body versus another part of the body. Those ratios change throughout the season just because of the way they move, the way they play, injuries." 
 
 After a head-to-toe breakdown on each guy of their tightest and weakest spots, Greene prescribes certain exercises, movements, sets and reps to align each player's steering wheel. 
-
-For Will, junior year he had to lose weight. 
-
-"I was about 240 and the goal was 222. ----- more." 
-
-TRANSITION 
 
 Greene's role changes depending what time of year it is. After assessments in the pre-season, Greene said, “I am just smashing these guys physically and mentally each and every day without basically a whole lot of basketball involved." He meets with them in training groups made up of six groups of two players based on the goals of the players. During the season, once the basketball is in their hands again, Greene has to ease up, and training groups consolidate to three or four guys in a group. 
 
