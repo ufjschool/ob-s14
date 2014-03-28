@@ -7,7 +7,7 @@ Viana Bhagan - All Nighters
 
 Sarah Brand - Red Bull Ingredients
 
-Sarah Davis - Sports Psychology
+Sarah Davis - Sports Counseling
 
 Amber Dawson - Crossfit
 
