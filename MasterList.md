@@ -9,7 +9,7 @@ Sarah Brand - Red Bull Ingredients
 
 Sarah Davis - Sports Counseling
 
-Amber Dawson - Crossfit
+Amber Dawson - DM Morale 
 
 Bakr Muhammad - Watts the Deal?
 
@@ -20,6 +20,28 @@ Natanya Spies - Aerial Silk
 Emilie Shinskie - Excited
 
 James Thieke - Religion and the Paranormal
+
+Adam Pincus - 
+
+Yaissy Solis - Quiz 
+
+Maria Galindo - Coffee 
+
+Brittany Bokzam - 
+
+Katina Prokos - Burlesque 
+
+Deanna Shahnami - 
+
+Katherine Hahn - 
+
+Bethany Curl - 
+
+Adam Lichtenstein - 
+
+Alexa Volland - 
+
+
 
 ### Group Stories
 
@@ -60,5 +82,9 @@ Deanna Shahnami - Carolyn Green
 James Thieke - Energy Background
 
 ##### Sports
+
+Sarah Davis - Track and Swimming 
+
+Devon Abelman - Basketball 
 
 ##### Off-the-Grid
