@@ -3,14 +3,23 @@ This is the central list for the editors and designers to know exactly what cont
 ### Individual Stories/Pieces
 
 Devon Abelman - Mr. Positive Push
+
 Viana Bhagan - All Nighters
+
 Sarah Brand - Red Bull Ingredients
+
 Sarah Davis - Sports Psychology
+
 Amber Dawson - Crossfit
+
 Bakr Muhammad - Watts the Deal?
+
 Mary Reyes - Fisherman
+
 Natanya Spies - Aerial Silk
+
 Emilie Shinskie - Excited
+
 James Thieke - Religion and the Paranormal
 
 ### Group Stories
