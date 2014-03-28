@@ -1,10 +1,57 @@
 #Medium Story
 
+##Carolyn Green: Energy Nurse
+
+She is not just any type of nurse. 
+
+Carolyn Green is an official “Energy Nurse.”
+
+The one word she used to describe her work: fascinating.
+
+Green assists in balancing the energy field in one’s body, also commonly known as the auric field.  The energy system goes much deeper than just the field around them. It has an anatomy of its own.
+
+“The advantage to that, is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
+
+Green received her RN at Seminole State College in 1983. She became certified in Healing Touch in 2010 while working on her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
+
+From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. By the age of 12, Green said she started to see energy around things. 
+
+This ability was something she understood later on in life as functioning on a higher frequency level.  Today they refer to it more as HSP, higher sensory perception. 
+
+“It is like taking your basic senses to the second floor,” Green said. 
+
+Green practices the Jewish faith and believes in one God. 
+
+While using a crystal pendulum to assess the person’s energy field, Green works with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. 
+
+“It is the ultimate cellphone connection,” Green said.
+
+Green also does grief work since many departed loved ones make their presence known to her to help their families who are still grieving.
+
+Whether it is grief work or a serious illness, many people see Green as a last resort to maintain his or her health in a natural way. Energy work fits with western methods, because it accelerates the healing process of someone going through medical treatments. It balances their system quicker to decrease their medication dosages. She advises her clients to continue all prescribed medication and to inform the doctors if they note any changes. 
+
+She is now the author of "Getting to Know You: Guided Pearls of Wisdom for a More Soulful Experience." 
+
+“The Spirit moved me,” Green said.
+
+About 14 years ago, she channeled messages from a spirit that she thought were messages, which turned out to be the book. The book was written in four months. In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual bodies. 
+
+A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
+
+Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. 
+
+On her down time, Green works at the Apopka Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband and three children. She anticipates writing another book in a couple of years. 
+
+“We are amazing beings with all the answers within ourselves to lead a healthy and productive life,” Green said. 
+
+
+##James
+
 Some call it extra-sensory perception. Some claim it is a sort of sixth sense. Others call it fake and a form of deception.
 
 Whatever the view one may take, it’s undeniable that there are many people who claim to have a variety of special powers that let them perceive beyond what the normal human can experience.  
 
-There are energy readers who have the ability to see and manipulate the energy around humans. Psychics and fortunetellers will predict the future. Mediums will communicate with the dead and relay messages to the living. 
+There are energy readers who have the ability to see and manipulate the energy around humans. Psychics and fortunetellers predict the future. Mediums communicate with the dead and relay messages to the living. 
 
 Their methods often range from eccentric to entirely nebulous, which is why there are so many who doubt the validity of their claims. These powers also have very little in the way of hard scientific support. 
 
@@ -18,7 +65,7 @@ While Geis would listen to the card readings, and in many instances she found th
 
 “I think some people are extremely in tune with nature around them and they feel like they are special and they have this gift…but I don’t think she had that gift,” she said.
 
-Geis did not take a firm stance one way or the other: while she said believed that some people could truthfully see the future or speak to the dead, she said it may just be a case of very intuitive people who can read others’ emotions. She did express a solid belief in the paranormal however, attributing it to her upbringing in Catholicism.
+Geis did not take a firm stance one way or the other. While she said believed that some people could truthfully see the future or speak to the dead, she said it may just be a case of very intuitive people who can read others’ emotions. She did express a solid belief in the paranormal however, attributing it to her upbringing in Catholicism.
 
 She said that her faith’s beliefs in exorcisms lead her to believe there must be other kinds of spirits and energy as well.  
 
@@ -30,6 +77,7 @@ Belief is one thing, but definitive proof of psychic powers still eludes the mai
 Andrew Nichols, who holds a Ph.D. in clinical psychology, teaches classes to the Gainesville community about honing psychic senses. He is also a parapsychologist, a practitioner of the field which explores how the human mind relates to things that exist beyond our typical five senses. 
 
 He said he has had the ability to see energy since he was a small child. He called it the ability to see “auras,” which appeared to him as “misty luminescence,” similar to heat waves coming off of a sidewalk, but in different colors.
+
 “For a long time I thought everyone could see them,” he said, “And I would always mention them and people would give me strange looks.”
 
 He said eventually his aunt pulled him aside and told him he had “the sight,” and that he needed to stop talking about it and start learning to control it.
@@ -46,8 +94,7 @@ He also clarified that while the color is up for interpretation, the energy fiel
 “A variety of experiments have shown that the energy fields do either attract or repel one another,” he said. “They have a sort of electromagnetic quality to them.”
 
 These energy fields can also rub off onto other things and other people. Every interaction between an aura and a physical object can result in a sort of psychic residue of the person being left on that object. Nichols said that’s what causes most hauntings: people who previously lived in a place have left their impressions on the building itself.
-This means people who claim to be energy readers can tell a lot of things about their subjects which would seem almost impossible to know; everything someone does leaves a mark on them. 
-
+This means people who claim to be energy readers can tell a lot of things about their subjects which would seem almost impossible to know. Everything someone does leaves a mark on them. 
 
 There is also the chance that mediums, who claim to speak to the dead, are merely reading the imprints of the deceased persons on the client.
 
@@ -57,6 +104,7 @@ Nichols called a “strained relationship” between mediums and researchers.  O
 Parapsychologists believe in auras and energy, and thus also believe in the merits of energy reading. Future-telling could be seen as more of a variation on energy reading and being able to make good predictions based on the evidence, as opposed to an actual prophetic sight.
 
 The notion of being able to communicate with dead people, however, is still a hotly debated topic in the community, with no one really being able to give a definitive answer on how it is done. 
+
 Primarily in history, there have been two main types of mediums: physical and mental. Physical mediums conducted their sessions in dimly lit rooms and would make objects fly around, tables shake and a substance called ectoplasm exude from their bodies. 
 
 Physical mediums are rarer nowadays due to many of them being exposed as fakes. It was easy enough to make things move in a dark room and blame it on spirits, or exude a substance that looked like ectoplasm but that was really something more common. 
@@ -66,7 +114,7 @@ Mental mediums claim to hear the voices of the dead or see images in their minds
 Nichols admitted that mediums do say vague and generic things, called “cold reading,” as a form of biding time, as they cannot turn on messages from the deceased at will. However, there will be a time when they say something so specific and so personal that they could have only known it from that deceased person. Nichols said that is proof that they must have some connection to a different source of knowledge.
 
 There are two main theories about how mediums receive their information. One is the Super ESP theory, which says mediums can access knowledge from a sort of “cosmic database,” into which dead people’s consciousnesses have all melded together. The other is the Survivalist theory, which says mediums are communicating with actual and unique dead spirits. 
-Both theories leave room for problems in the communication process. There is no indication that spirits behave any differently from their human counterparts or have any extra knowledge. They could lie, intentionally deceive, or just be mistaken in what they tell the medium.
+Both theories leave room for problems in the communication process. There is no indication that spirits behave any differently from their human counterparts or have any extra knowledge. They could lie, intentionally deceive or just be mistaken in what they tell the medium.
 
 In the Super ESP hypothesis, it is possible a medium might not be able to distinguish what comes from his or her own subconscious and what comes from the cosmic conscious. Parapsychologists generally accept the concept of extra-sensory perception but are unsure of its limits. It is entirely possible that everything a medium “hears” is coming from within themselves and not external sources.
 
@@ -92,44 +140,3 @@ He also noted how, in medicine, energy healing is available for registered nurse
 
 “It seems as though science is gradually catching up,” he said. “These discredited theories and philosophies of the superstitious are being re-embraced under new names. And nobody in my field is surprised.”
 
-##Carolyn Green: Energy Nurse
-
-The one word she described her work: fascinating.
-
-She is not just any type of nurse. 
-
-Carolyn Green is the official “Energy Nurse.”
-
-Green assists in balancing the energy field in one’s body, also commonly known as the auric field.  The energy system goes much deeper than just the field around them. It has an anatomy of its own.
-
-“The advantage to that, is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
-
-Green received her RN at Seminole State College in 1983. She became certified in Healing Touch in 2010 while working on her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
-
-From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. By the age of 12, Green she started to see energy around things. 
-
-This ability was something she understood later on in life as functioning on a higher frequency level.  Today they refer to it more as HSP, higher sensory perception. 
-
-“It is like taking your basic senses to the second floor,” Green said. 
-
-Green practices the Jewish faith and believes in one God. While using a crystal pendulum to assess the person’s energy field, Green worked with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She used her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. 
-
-“It is the ultimate cellphone connection,” Green said.
-
-Green also does grief work since many departed loved ones make their presence known to her to help their family still grieving.
-
-Whether it is grief work or a serious illness, many people see Green as a last resort to maintain his or her health in a natural way. Energy work fits with western methods, because it accelerates the healing process of someone going through medical treatments. It balanced their system quicker to decrease their medication dosage. She advised her clients to continue all prescribed medication and to inform the doctor if they note any changes. 
-
-She is now the author of Getting to Know You: Guided Pearls of Wisdom for a More Soulful Experience. 
-
-“The Spirit moved me,” Green said.
-
-About 14 years ago, she channeled messages from a spirit that she thought were messages, which turned out to be the book. The book was written in four months. In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual body. 
-
-A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
-
-Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. 
-
-On her down time, Green works at the Apopka Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband and three children. She anticipates writing another book in a couple of years. 
-
-“We are amazing beings with all the answers within ourselves to lead a healthy and productive life,” Green said. 
