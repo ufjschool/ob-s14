@@ -23,7 +23,7 @@ Here are what some local religious leaders and scholars say about what each reli
 
 ###Roman Catholic Christianity
 
-Catholicism is the largest single denomination of Christianity, the world’s most popular religion, in America. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
+Catholicism is the largest single denomination of Christianity -- the world’s most popular religion -- in America. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
 
 According to Catholic doctrine, when a person dies, that person’s soul is judged on the merit of his or her life and actions. If the soul was good, it gets an eternal reward in heaven; if it still needs some cleansing, it will be purified in purgatory; and if it was wicked, it will be sent to eternal punishment in hell.
 
@@ -150,3 +150,123 @@ On the other side, being possessed by a god is a good thing, while there are oth
 “There is also a fear in talking with the dead,” she said. “They don’t want your present life cycle to be messed up by outside interference.”
 
 “You’re here for a reason, you’re here with free will and you make your decisions, and having other people interfere by warning you, telling you or going to them for various things is not seen as healthy.”
+
+### Rationalism
+
+Rationalists are what parapsychologists call the people who only trust hard science. If their five senses can’t perceive something, it doesn’t exist to them. In this day and age, concepts like spirits and psychics aren’t discussed in school curricula. Scientists like Nichols are pushed to the fringe, often not respected by their academic peers. The familiar refrain is: if this stuff really exists, why don’t we have any proof? How come all we have are hearsay ghost stories and “psychics” who say such vague things that they could mean anything? 
+
+However, while the mainstream conception of the paranormal may be that it is “weird” or “freaky,” many paranormal concepts are not foreign to the average person. According to the General Social Survey, about 80 percent of American homes are religious, and every religion contains some elements of the paranormal. And in other cultures, religion and science are seen as working hand-in-hand; learning about the world doesn’t preclude the existence of spirits. And the counter argument to the rationalist refrain is: if this stuff doesn’t exist, why are there so many stories about it? Why are so many people in the world convinced that there are things that transcend the natural world?
+
+
+
+##Quiz Questions
+
+Answer these questions to find out with which belief system your paranormal beliefs align, and what some local religious leaders and scholars say about what that religion believes about the paranormal in the world today. 
+
+
+**1.You are in an old building alone at night. You begin to hear noises that don’t sound natural. What are they?**
+
+a.Evil spirits; I shouldn’t be here at night.
+
+b.It might be the deceased souls of people who were buried near here.
+
+c.It’s probably energy from the building’s former occupants.
+
+d.It’s the wind; the sound just seems scarier in when I’m alone.
+
+**2.You visit a graveyard to pay tribute to dead loved ones. While sitting at the grave, you feel a sort of presence, like a weight hanging over you. What do you think?**
+
+a.I can sense my loved ones; they might even be trying to communicate with me.
+
+b.Graveyards are scary places, so naturally I feel afraid. My nerves are getting the best of me.
+
+c.It might be dead people, but I don’t think it really works that way.
+
+d.I’ve heard of this; spirits hang around graveyards to try and influence people.
+
+**3.What’s going to happen to you when you die?**
+
+a.Hopefully, I’m going to heaven.
+
+b.I won’t go there straightaway, but eventually I’ll get to paradise.
+
+c.I’m going to reincarnate into another body and get another shot at this life thing.
+
+d.I know I’m going to hell.
+
+e.Nothing. My death means the end of me.
+
+**4.You’re at your friend’s party, and they have hired a fortuneteller to predict people’s futures.  What is your gut reaction?**
+
+a.Cool! I can’t want to see what my future holds.
+
+b.People can’t predict the future, so that person is obviously a fake.
+
+c.I want to see what they have to say first, and then I’ll make my judgment.
+
+d.I don’t know; I think some people have those powers, but I don’t think this person is one of them.
+
+**5.The fortuneteller now walks over and says your great-grandmother has a warning for you. Do you believe it?**
+
+a.No way; my great-grandmother is dead, and dead people don’t talk.
+
+b.Of course I do. Family messages shouldn’t be disregarded so quickly.
+
+c.Maybe. Some people can bridge that gap of the living and the dead, and maybe this fortuneteller is one of them.
+
+d.While I believe my great-grandmother may talk to me, there’s no way she would warn me through a random fortuneteller.
+
+**6.You have a lucid dream in which an old man gives you advice. When you wake up, what is your interpretation?**
+
+a.God was talking to me.
+
+b.It might have been one of my ancestors guiding me.
+
+c.It could have been spirits influencing my dreams.
+
+d.I’ve had stranger dreams. Just my brain being weird as usual. 
+
+**7.You watch the movie The Exorcist, and see the little girl being possessed. What is your opinion on the realism of these scenes?**
+
+a.This could happen; I’m going to spend more time around priests.
+
+b.I believe in demons, but I don’t think possession would make me float and make my head swivel 360 degrees. It’s more subtle than that.
+
+c.While I think spirits exist, they don’t influence us like that. We have our world, they have theirs.
+
+d.This can’t happen, end of discussion.
+
+**8.Do you read your horoscopes? If so, how much stock do you put in them?**
+
+a.I don’t have time for that generic babble.
+
+b.I do, but just for fun; I don’t actually believe them.
+
+c.I put a little stock in them; like, I might make a couple of small decisions differently, but definitely not big decisions.
+
+d.I never make a significant life decision without checking my horoscope first.
+
+**9.Your friend tells you that they have seen a ghost at their house. Do you believe them?**
+
+a.Yeah, I guess it’s possible. Probably was a lost soul.
+
+b.I don’t believe their story. Their house is way too new, and ghosts only inhabit old buildings.
+
+c.I like my friend, but I can’t believe them. Because ghosts aren’t real.
+
+d.It could be a demon influencing them; they should get their house checked out.
+
+**10.A man comes up to you and says God has spoken to them. You check out what he says with the Bible and find it could logically follow some other prophecies. Is this person a real prophet?**
+
+a.I think so. It may take a while for his predictions to come true, but they make scriptural sense.
+
+b.I think I’ll wait and see how much of it turns out to be true.
+
+c.I don’t think so; all of the real prophets lived thousands of years ago.
+
+d.No, he’s a fraud. He just knows the Bible well and is making stuff up.
+
+e.God doesn’t talk to people, because God isn’t real. Even if he was, he wouldn’t talk to this guy.
+
+
+
