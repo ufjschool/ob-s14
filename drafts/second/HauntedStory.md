@@ -2,7 +2,7 @@
 
 ###HAUNTED UF
 
-Ghost stories are strange animals. Year after year you hear them in different voices, see them through different lenses. You can’t prove they exist but can never seem to put a figure on why they don’t. 
+Ghost stories are strange animals. Year after year, you hear them in different voices, see them through different lenses. You can’t prove they exist but can never seem to put a figure on why they don’t. 
 
 Tracing its roots back before the Civil War, the University of Florida has quite a past. This university has seen world wars and world peace, segregation and integration. It’s seen national championships. And like anything of a great age, this university has seen death. Lots of death.
 
@@ -10,9 +10,9 @@ With death and history comes the inevitable –- the ghost story.
 
 ###BEATY 
 
-“The lights were all off”
+“The lights were all off.”
 
-It happened in Beaty Towers East, the third floor. Ben Dostovic was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, a friend of his. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
+It happened in Beaty Towers East, on the third floor. Ben Dostovic was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, Dostovic's friend. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
 
 “He ignored it at first and tried going back to sleep,” Romero said, her voice filled with the thrill of telling a scary story.
 
@@ -32,9 +32,9 @@ He ignored it until he saw his doorknob turn, slowly.
 
 ####A Little History
 
-Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, and eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967, but was eventually named after professor Robert Calder Beaty (http://www.uff.ufl.edu/Facilities/Facilities.asp?ID=104). Beaty was a WWI veteran and former University of Florida Dean of Student Personnel who retired in 1960.
+Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, an eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967, but was eventually named after professor Robert Calder Beaty (http://www.uff.ufl.edu/Facilities/Facilities.asp?ID=104). Beaty was a WWI veteran and former University of Florida Dean of Student Personnel who retired in 1960.
 
-The UF housing history book (http://www.housing.ufl.edu/media/about/aboutus.historybookpdf.pdf) calls Beaty Towers an “architectural anomaly” on campus, because high-rise residential facilities were nonexistent at UF and scare throughout the southeast in general. Each of the 200 apartments in Beaty typically house four students, with two bedrooms, one bathroom and a common living area and kitchenette. 
+The UF Housing history book (http://www.housing.ufl.edu/media/about/aboutus.historybookpdf.pdf) calls Beaty Towers an “architectural anomaly” on campus, because high-rise residential facilities were nonexistent at UF and scarce throughout the southeast in general. Each of the 200 apartments in Beaty typically house four students, with two bedrooms, one bathroom and a common living area and kitchenette. 
 
 The dorm opened in the midst of social change on college campuses, the book explains. 1967 said goodbye to dress codes and curfews for female students, and by the following summer, UF residential hall associations were no longer divided by gender.
 
@@ -42,14 +42,15 @@ Supposedly around that time, a girl jumped from her Beaty dormitory to her death
 
 ####A suicide legend
 
-Kids have died on the UF campus. Death is an inevitability among 50,000 students. Some of them have died in their dorm rooms, some in Beaty Towers. A simple Google search of “UF student died Beaty Towers” turns up old Gainesville Sun articles with details. One of the first to come up is a November 1987 write-up of the alcohol poisoning death of 18-year-old freshman Robert Stevenson, who was found in his dorm room at Beaty TowersEast (http://news.google.com/newspapers?nid=1320&dat=19871126&id=Hj9WAAAAIBAJ&sjid=D-oDAAAAIBAJ&pg=3704,3048058).
+Kids have died on the UF campus. Death is an inevitability among 50,000 students. Some of them have died in their dorm rooms, some in Beaty Towers. A simple Google search of “UF student died Beaty Towers” turns up old Gainesville Sun articles with details. One of the first to come up is a November 1987 write-up of the alcohol poisoning death of 18-year-old freshman Robert Stevenson, who was found in his dorm room at Beaty Towers East (http://news.google.com/newspapers?nid=1320&dat=19871126&id=Hj9WAAAAIBAJ&sjid=D-oDAAAAIBAJ&pg=3704,3048058).
 
-Deaths like his are the ones few remember, the ones nobody talks about. For whatever reason, it is a death that nobody can prove actually happened that UF students hear about over and over.
+Deaths like his are the ones few remember; the ones nobody talks about. For whatever reason, it is a death that nobody can prove actually happened that UF students hear about over and over.
 
-From what I gather, it’s Gator household story that a female student committed suicide by jumping from her Beaty dormitory. Which tower was it? Which room did she jump from? What year did it happen? Nobody seems to be able to answer these questions, though they keep coming up. I even remember hearing the girl was pregnant when she jumped.
+From what I gather, it’s a Gator household story that a female student committed suicide by jumping from her Beaty dormitory. Which tower was it? Which room did she jump from? What year did it happen? Nobody seems to be able to answer these questions, though they keep coming up. I even remember hearing the girl was pregnant when she jumped.
 
 According to the people who should know, however, there is no record of a girl killing herself by jumping from Beaty. I contacted the one man who might know if anyone does: UF historian and curator Carl Van Ness.
-An “American Girl”?
+
+####An “American Girl”?
 
 The suicide legend stems from the Tom Petty song “American Girl,” Van Ness said. A popular interpretation of the song is a girl contemplating suicide. The connection to the University of Florida and, specifically, Beaty Towers, comes from the second stanza:
 
@@ -70,7 +71,7 @@ Tom Petty is a Gainesville native and would have seen the dorm many times.
 
 However, he said he has never seen any records to indicate the song is based on an actual event. Also, anyone can look up at Beaty Towers and see that no balconies exist.
 
-“How a ghost appears is another question,” he said. “Apparently, it is the ghost of 	someone who never existed.”
+“How a ghost appears is another question,” he said. “Apparently, it is the ghost of someone who never existed.”
 
 UF spokesman Steve Orlando echoes Van Ness in his claim that nobody has committed suicide by jumping from Beaty Towers, according to an August 2009 article from The Independent Florida Alligator (http://www.alligator.org/news/campus/article_28668d1f-4473-57b1-9d52-ddce62158263.html). Orlando said he has met Tom Petty in person and that the singer said the rumors were completely false.
 
@@ -123,7 +124,7 @@ He also recommends to sit in dim lighting and to go to the place where haunting 
 *** 
 **7:00 p.m.** – The water fountain cooler kicks on with a snap and nearly gives me a heart attack. I had been close to dozing off. I am still very alone. The only indication that other people might be in the building are faint sounds to my right that sound like an elevator. To my left, as I had first started to drift off, I had heard a sound like a rattling of a small chain. I’m not sure what that could have been. Other than those sounds and the low hum of the air conditioner, it is still very quiet. I scribble down some notes on a sheet of paper and then close my eyes once again. 
 *** 
-I have a mixed background in the paranormal. My parents and my father’s side of the family are exclusively scientists. My mother’s side of the family is descended from gypsies, visits mediums on a regular basis and explores the mysticism of various cultures. I am also a devout Christian. So I have lots of conflicting influences when it comes to seeing ghosts.
+I have a mixed background in the paranormal. My parents and my father’s side of the family are exclusively scientists. My mother’s side of the family is descended from Gypsies, visits mediums on a regular basis and explores the mysticism of various cultures. I am also a devout Christian. So I have lots of conflicting influences when it comes to seeing ghosts.
 
 The truth is, I want to believe. Even though every scientific bone in my body is screaming fraud, the concepts of spirits and psychic powers is too alluring for me to pass up. I believe that God exists; why not spirits as well?
 
@@ -163,7 +164,7 @@ The doors open and I step out on the first floor. Norman Hall is starting to mak
 
 I follow the sound of coughing to a break room with vending machines. At the other end of the room sits a man working on a laptop. I decide to approach him and tell him about my mission. He says I’m the only other person he’s seen in the last few hours. 
 
-I ask him when UFPD locks the doors, and he says that they usually come at 11 p.m. He says he studies here often, and that he’s sometimes managed to stay until 1 a.m. without a problem. 
+I ask him when UFPD locks the doors, and he says that they usually come at 11 p.m. He says he studies here often and that he’s sometimes managed to stay until 1 a.m. without a problem. 
 
 The prospect of an overnight stay is enticing, but Norman Hall is wearing on me. Every minute staying by that water fountain gets harder and harder. Walking the halls is unsettling. The stairs feel claustrophobic. I decide not to stay any longer than I originally planned. 
 
@@ -215,13 +216,13 @@ Despite coming here for years, he is unaware of the haunted rumors. He says he k
 
 You see rats and mice?
 
-“Yeah, they come out of that corner,” he says gesturing to a spot. “I haven’t seen them in the last few weeks though.”
+“Yeah, they come out of that corner,” he says, gesturing to a spot. “I haven’t seen them in the last few weeks though.”
 
-He then also tells me that the first-floor men’s bathroom used to have a thin piece of metal loosely attached to the wall, and that pulling it back would reveal a small staircase going down. “Although I don’t know what down from here would be,” he says. “We’re on the ground.”
+He then also tells me that the first-floor men’s bathroom used to have a thin piece of metal loosely attached to the wall and that pulling it back would reveal a small staircase going down. “Although I don’t know what down from here would be,” he says. “We’re on the ground.”
 
 I go to the bathroom to confirm this. The thin metal he referred to has since been replaced by a much sturdier metal plate, with screws in it that are strong enough to fix it on, but loose enough to see there is definitely a lot of space behind it. The screws are big enough that I could probably unscrew them with my keys, but that would probably be illegal to do, so I don’t. 
 
-*Ghosts, sounds, boxes, rats, and stairways…how much creepier can this building get?*
+*Ghosts, sounds, boxes, rats, and stairways...how much creepier can this building get?*
 *** 
 **8:45 p.m.** – Readjusting my eyes to the darkness is a pain, but I’m soon back in business in my spot by the water fountain. It’s much harder now. It’s not that I feel tired, but I feel almost heavier. When I sit next to the water fountain, it feels as though I constantly want to leave. I’m never comfortable.
 
@@ -235,7 +236,7 @@ In his article, Lansford writes about how the elevator where the children suppos
 ***
 **9:15 p.m.** – It would look like just a normal brown, wooden door, if not for the big, red sign that reads, “ELEVATOR OUT OF SERVICE.” Just a couple of paces away is the new elevator; sleek, shiny and metallic.  I turn as many lights off as I can and sit down next to the old elevator.  
 
-I keep waiting for the impending dread, or the weight of the world…but it doesn’t come. It feels as though I’m sitting in a normal hallway. It is actually the most normal I have felt all night. 
+I keep waiting for the impending dread, or the weight of the world...but it doesn’t come. It feels as though I’m sitting in a normal hallway. It is actually the most normal I have felt all night. 
 
 It gets to be 9:30, and so I end my mission on a confusing note. I leave the third floor, turning back on all of the lights as I go. As I step out into the night air, the weighty feeling doesn’t leave. I make it all the way back to my house before I feel any different.
 
@@ -245,7 +246,7 @@ Talking with Egan also made me wonder. He didn’t know about the hauntings, and
 
 Still, there was that girl’s voice. And there was that mysterious box. I’ve had a while to think about it, and I still can’t explain either of them.
 *** 
-So is it possible that Norman Hall is truly haunted? Even though Lansford doesn’t yet believe it, it wouldn’t matter much to him.
+So is it possible that Norman Hall is truly haunted? Even though Lansford doesn’t yet believe it, it wouldn’t matter much to him if there were ghosts.
 
 “I like working here and I figure they haven’t harmed anyone if they are here, so you know, we can cohabitate together if they’re there,” he says. 
 
@@ -263,13 +264,13 @@ Nichols does say that more individual scientists, if not science as a whole, are
 
 #Emilie Shinskie 
 
-I was curious, curious about who these people were and skeptical about what they did.
+I was curious; curious about who these people were and skeptical about what they did.
 
-I walked into the Engineering Building on the UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. On their website they claimed to be “everyday people,” passionate and interested in researching and investigating paranormal activity.  
+I walked into the Engineering Building on UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. On their website, they claimed to be “everyday people,” passionate and interested in researching and investigating paranormal activity.  
 
-Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a PHD student in Anthropology at UF and member of the non-profit organization, shook my hand kindly. They were more professional and gentler-looking than I had imagined. 
+Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a doctoral student in anthropology at UF and member of the nonprofit organization, shook my hand kindly. They were more professional and gentler-looking than I had imagined. 
 	
-“ ‘I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
+“‘I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
 	
 Boothby and Bolejack help explain the unexplainable. They calm the frightened, and along with the rest of their team, they investigate all things bizarre: the noises, the smells, the sightings. “It’s about helping people, helping them not to be afraid in their own homes, giving them ways to deal with what’s going,” Boothby said. 
 
@@ -283,13 +284,13 @@ I wondered what they were talking about. They took all of this so seriously. If 
 
 According to the FPI, people experience paranormal activity on different levels and in different ways, including audibly, visually and sensationally. People claim to hear footsteps, rustling, conversations, or voices saying their name when there is no one else around. They might see apparitions- a ghostlike image of a person. Or they might feel static sensations or sense that someone is watching them. According to Boothby, audible experiences seem to be the most common.  
 
-How frightening, I thought, to be bombarded with the noises, the suspicions and the question of: “Am I crazy?”
+How frightening, I thought, to be bombarded with the noises, the suspicions and the question of, “Am I crazy?”
 
 The two questions Bolejack and Boothby said they answer the most are: “Am I crazy?” and “Is my house haunted?” 
 
 “People are questioning their sanity, and that’s an extreme state to be in when you’re questioning whether you’re crazy or not,” Boothby said. Boothby said they tell clients, “We’re here to listen. We’re not going to judge you. We’ve heard it all, and we’re going to help you determine what’s paranormal. We’re here to help you find a solution.” 
 
-And that’s just what the FPI do; they find solutions. 
+And that’s just what the FPI do: they find solutions. 
 
 According to their website, when clients call the Florida Paranormal Investigations team, they are asked a series of about 80 questions, including questions regarding the home they are living in, information about the people living in the home and details of the weird experiences they’ve had.  
 
@@ -299,13 +300,13 @@ What about the clients, I wondered? Where do they go during an investigation?
 
 According to Bolejack, the FPI doesn’t ask clients to leave their homes during investigations, but they do prefer for them to stay in a particular area of the house for the duration of the investigation and stay as quiet as possible. Unless the FPI wants to use the clients’ pets, they too, are asked to remain in a confined area of the house. 
 
-Bolejack said that they sometimes like to use clients’ pets as tools, though. “They are more sensitive to paranormal activity than we are as individuals,” Bolejack said. “They also can’t lie and they can’t make things up which make them a great asset,” he chuckled. 
+Bolejack said that they do sometimes like to use clients’ pets as tools. “They are more sensitive to paranormal activity than we are as individuals,” Bolejack said. “They also can’t lie, and they can’t make things up which make them a great asset,” he chuckled. 
 
 For example, if a dog has been claimed to bark at a corner of the house at the same time every night, that’s an indication that something bizarre is going on. This doesn’t necessarily confirm that something paranormal is going on, but the dog’s tendency causes the FPI to be more curious about that specific corner and the activity that may be going on there, Bolejack said.  
 
-The same applies to children as well. Children often play an important role while investigating, because sadly whatever oddities are going on, it usually involves them. When children become so bothered by something and the parents feel helpless, they call the FPI.
+The same applies to children as well. Children often play an important role while investigating, because sadly, whatever oddities are going on, it usually involves them. When children become so bothered by something and the parents feel helpless, they call the FPI.
 
-“ “Are you gonna make the ghosts go away?’ and you look at them and you’re like, what do I say to that?” Bolejack said. 
+“'Are you gonna make the ghosts go away?’ and you look at them and you’re like, what do I say to that?” Bolejack said. 
 	
 Bolejack and his team said that they don’t necessarily know how to make the ghosts go away, but they do know how to either diagnose the home of having paranormal activity or debunk the home of paranormal activity. 
 
@@ -314,6 +315,7 @@ Debunk. That word sounded like something from a Halloween cartoon movie. How do 
 According to the FPI, when they enter into an investigation, they do so with the hope that they will be able to find alternative answers to the odd activity that is occurring there. This is called debunking.
 
 For example, electromagnetic fields (EMF) occur naturally in appliances and all things that use electricity, Boothby explained. When the EMF is too high in a certain location, for instance if an appliance is giving off too much EMF, a person might experience symptoms that are similar to paranormal symptoms but are not. It is then the FPI’s job to confirm with the client that the symptoms they are experiencing are not due to paranormal activity. They can be at ease. 
+
 Boothby had her own experience with this. She was doing an investigation at an Inn with her team and while sitting in corner of a bedroom at the Inn, she began to feel a sense of paranoia. She asked her teammates to bring out a K2 meter, a device used for recording and measuring the strength of an electromagnetic field. The meter read that the alarm clock next to her was giving off a very high amount of EMF. Boothby was immediately able to debunk the paranoia she was feeling. Her paranormal-like symptoms were not because of paranormal activity, but because the alarm clock was emitting too much EMF.
 
 According to Boothby, different people can handle different amounts of EMF, which causes some more than others to feel bothered and fear that they are experiencing something paranormal. 
@@ -322,9 +324,7 @@ The FPI can also debunk the claims made by clients by proving that the scratchin
 
 But what if the FPI can’t debunk a claim? What if the paranoia can’t be fixed by an electrician or by installing new water pipes?  
 
-For instance, according to the FPI, it is believed that entities can manipulate the EMF fields to make the K2 meters go off. 
-
-What then?
+For instance, according to the FPI, it is believed that entities can manipulate the EMF fields to make the K2 meters go off. What then?
 
 After carefully analyzing their findings from an investigation, the FPI decides what they can and cannot prove, what they can and cannot debunk. “You kind of narrow it down and be like, OK, only these claims left are the ones we can’t explain,” Boothby said.
  	
@@ -350,9 +350,9 @@ Was I one of these people? Would I be judgmental if someone told me their story?
 
 The FPI said they are part of a network of paranormal investigation teams in Florida and around the nation. At a moment’s notice they can call upon their sister team in St. Augustine for help. 
 
-They receive calls weekly from people inquiring about paranormal activity. The month of October is their busiest month. They pursue private investigations within a 2-hour radius of Gainesville, and will refer investigations outside of this radius to other teams. 
+They receive calls weekly from people inquiring about paranormal activity. The month of October is their busiest month. They pursue private investigations within a two-hour radius of Gainesville and refer investigations outside of this radius to other teams. 
 
-The FPI doesn’t consider Gainesville to be a haunted city. Because it isn’t a haunted city, they believe that people aren’t too quick to assume that something strange is something paranormal, thus they don’t do very many private investigations in Gainesville. 
+The FPI doesn’t consider Gainesville to be a haunted city. Because it isn’t a haunted city, they believe that people aren’t too quick to assume that something strange is something paranormal, thus they don’t do many private investigations in Gainesville. 
 
 The FPI believes that ghost stories stick around when generations of people live in a city. They said because of the university, Gainesville’s population is constantly being replenished with new people. The stories don’t stick. But they wouldn’t consider what they research to be ghost stories. 
 
@@ -360,7 +360,7 @@ The FPI believes that ghost stories stick around when generations of people live
 
 The FPI seeks to know the truth about paranormal activity and the people it affects. They don’t seek the hype and the glam and glitz of ghost stories. “Our website, it’s not black, it doesn’t have bleeding letters all over it,” Bolejack said. “That’s something I’m proud of.” 
 
-They were proud, very proud of what they do. I could see it. 
+They were very proud of what they do; I could see it. 
 
 “I’m proud to even go back to my own father now and say ‘look at what I do,’ “ Bolejack said. Coming from a long line of ministers in his family, he said he was raised to help people. 
 
@@ -368,6 +368,6 @@ And help is what he does. It’s what they all do, volunteering their time to in
 
 “It’s no longer a kid story; It’s no longer fables and myths,” Bolejack said. “It’s more and more people coming to terms with ‘there is something out there; we may not understand it, but there is something out there.’ More and more people are coming out to acknowledge that.”   
 
-And that night I acknowledged it, every bit it.
+And that night I acknowledged it, every bit of it.
 
 	
