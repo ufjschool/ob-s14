@@ -1,6 +1,6 @@
 [TITLE]
 
-At 5:30 p.m. on a rainy Wednesday, the University Club is dim and deserted. Chastity Rose opens the bar at 5, so I meet her there, upstairs, where there are only two or three other people and the quiet background noise of the TV screen playing a movie I don’t recognize. (It has white people in a car, if that helps). 
+At 5:30 p.m. on a rainy Wednesday, the University Club is dim and deserted. Chastity Rose opens the bar at 5, so I meet her there, upstairs, where there are only two or three other people and the quiet background noise of the TV screen playing a movie I don’t recognize.  
 
 Chastity leads me into the dressing room at the back of the second floor. It’s a clean, compact space, with mirrors on every wall that reflect the harsh yellow light. At 6’1”, Chastity towers over me, but the difference disappears when we perch side-by-side on the counter. I ask her to tell me about herself: her life, her goals, her family, her job. Chastity bartends at the UC, but she also performs as a drag queen.
 
@@ -22,11 +22,9 @@ The latter is aided by a heavy dose of themed costumes, all of which Chastity se
 
 “I love it when people say they love my dresses, and I’m like, ‘Yeah, I made this,’” she says. “‘Yeah, I made it from scratch, this was on my floor about an hour ago.  It was in pieces. Now it’s an outfit.’ Bam. Magic.”
 
-Chastity plans on taking her costumes and dark humor to the Miss Tampa Bay Comedy Queen Pageant in May. Last year, she placed second in the same competition.
+Chastity plans on taking her costumes and dark humor to the Miss Tampa Bay Comedy Queen Pageant in May. Last year, she made it to the national level of the same competition and placed second.
 
-[need more info on competitions – will fill this part in Monday, the 31st, since I’ll see her for a photoshoot]
-
-“My mother came to nationals,” Chastity recalls. “It was her first time at a drag show, and it was kind of a big thing for her to be there.” [nationals of what? more info needed]
+“My mother came to nationals,” Chastity recalls. “It was her first time at a drag show, and it was kind of a big thing for her to be there.” 
 
 Before beginning her routine that day, Chastity took the mic and gave her mom a special message: “My mother’s in the audience, it was her birthday yesterday. I just wanna say to her, I am so sorry!”
 
