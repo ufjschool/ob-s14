@@ -88,3 +88,8 @@ Sarah Davis - Track and Swimming
 Devon Abelman - Basketball 
 
 ##### Off-the-Grid
+Adam Pincus - Writer
+
+Bakr Muhammad - Designer
+
+Mary Reyes - Editor
