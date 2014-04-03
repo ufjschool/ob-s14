@@ -18,7 +18,15 @@ This is a downright lie.
 
 According to Samantha Evans, sexual health educator at GatorWell Health Promotion Services, healthy sexual activity in a setting where you're comfortable and not being coerced can have positive effects on the body and mind.
 
-Among these are: (4) • Increased libido – “The more frequently you have sex, the better sex feels,” Evans said. This increase in libido is especially helpful for women who are on hormonal contraception or who are in transition to menopause. • Calorie burning – “It’s not going to replace lifting weights or going to a yoga class, but there are studies that say you can burn five calories a minute,” Evans said. • Increased heart function and possibly the function of specific muscles depending on the vigor of the sex act, positions used, and other factors • Lowered blood pressure • Lowered risk of heart attack and prostate cancer • Balanced hormone levels • Increased immune system function • Lowered stress and improved sleep
+Among these are: (4) 
+• Increased libido – “The more frequently you have sex, the better sex feels,” Evans said. This increase in libido is especially helpful for women who are on hormonal contraception or who are in transition to menopause. 
+• Calorie burning – “It’s not going to replace lifting weights or going to a yoga class, but there are studies that say you can burn five calories a minute,” Evans said. 
+• Increased heart function and possibly the function of specific muscles depending on the vigor of the sex act, positions used, and other factors 
+• Lowered blood pressure 
+• Lowered risk of heart attack and prostate cancer 
+• Balanced hormone levels 
+• Increased immune system function 
+• Lowered stress and improved sleep
 
 If abstinence is an individual’s choice, that’s not to say they should run out and start having sex or else they’ll get sick and die. Risks related to STIs, UTIs and pregnancy are a reality. But abstinence-only education does not arm adolescents with the knowledge to prevent those risks. Some research has shown that abstinence-only strategies might even be deterring contraceptive use among sexually active teens. (5)
 
@@ -61,6 +69,11 @@ Empowerment is about the ability to make the choice that is right for you. It’
 Be promiscuous; be celibate; be something in between. But know your resources, know your body, and don’t be afraid to talk about it.
 
 --------------------------------------------------------------------------
-In order, here are my sources for these: 1) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 3) 2) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 1) 3) http://www.siecus.org/_data/global/images/FL%20Report%20-%20Sex%20Education%20in%20the%20Sunshine%20State.pdf 4) http://www.webmd.com/sex-relationships/guide/sex-and-health (I got all these bullet points from Samantha Evans first, but confirmed them using Internet sources like this one) 5) http://www.guttmacher.org/pubs/FB-Teen-Sex-Ed.html
+In order, here are my sources for these: 
+1) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 3) 
+2) https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf (page 1) 
+3) http://www.siecus.org/_data/global/images/FL%20Report%20-%20Sex%20Education%20in%20the%20Sunshine%20State.pdf 
+4) http://www.webmd.com/sex-relationships/guide/sex-and-health (I got all these bullet points from Samantha Evans first, but confirmed them using Internet sources like this one) 
+5) http://www.guttmacher.org/pubs/FB-Teen-Sex-Ed.html
 
 Should I attribute to these sources within the text, or can we keep the list of links/citations in the footnotes? Or use hyperlinks for the digital version? Some of these sources have very long titles and would disrupt the narrative a lot, which is why I like the idea of footnotes or hyperlinks instead of traditional attribution.
