@@ -23,7 +23,7 @@ James Thieke - Religion and the Paranormal
 
 Adam Pincus - 
 
-Yaissy Solis - Quiz 
+Yaissy Solis - Contraception Infographic (and maybe quiz) 
 
 Maria Galindo - Coffee 
 
