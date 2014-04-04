@@ -39,7 +39,7 @@ Bethany Curl -
 
 Adam Lichtenstein - 
 
-Alexa Volland - 
+Alexa Volland - Best times to drink coffee based on science
 
 
 
@@ -57,6 +57,10 @@ Barista Interview: Karma Cream
 Barista Interview: Maude's
 
 Coffee Quiz
+
+Best times to drink coffee
+
+Barista Interview: Coffee Culture
 
 ##### Sex
 Brittany Bokzam - Drag Queens
