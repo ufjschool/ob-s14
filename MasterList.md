@@ -27,7 +27,7 @@ Yaissy Solis - Quiz
 
 Maria Galindo - Coffee 
 
-Brittany Bokzam - 
+Brittany Bokzam - Sexual Health
 
 Katina Prokos - Burlesque 
 
