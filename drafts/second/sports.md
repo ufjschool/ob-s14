@@ -122,48 +122,54 @@ Graduating in May, Strausa has led her own gator legacy. And while her two-year 
 
 ##MEN'S SWIMMING
 
-*I have not done any further reporting since first drafts because swimming is still at nationals - no changes have been made since Amber's edits*
-
-It’s 5:30 am when the bright lights of the O’Connell Center Indoor Pool switch on and the 50 members of the swim team trickle in. Tommy Stitch, head athletic trainer for the team, spends his time filling orange Gatorade tubs, treating flu-season colds, and waits for the sun to rise and a new day to begin.
-
-“There is no typical day for me,” Stitch said.
-
-After a two-hour practice, he heads right over to the weight room where the team holds an hour-long strength and conditioning session. His day follows up with an afternoon practice, post-practice treatments and rehabilitation. Tot to mention appointment scheduling, paperwork and staff meetings. Throw away swim meets into the mix and you have a near 24/7 job.
+It’s 6 a.m. when the bright lights of the O’Connell Center Indoor Pool switch on and the members of the UF swim team trickle in. Tommy Stitch, athletic trainer for the team, spends his time filling orange Gatorade tubs, treating flu-season colds, and waits for the sun to rise and a new day to begin. After a two-hour practice, he heads over to the weight room where the team holds an hour-long strength and conditioning session. His day follows up with an afternoon practice, post-practice treatments and rehabilitation – not to mention appointment scheduling, paperwork and staff meetings. Throw swim meets into the mix, and you have a near 24/7 job.
 
 “Its so easy to take care of people at UF. We have so many resources,” he said. “And if you can’t figure something out, there’s always a bunch of other people that can. We’re all working together.”
 
-Studying exercise science at Fresno State and LSU, Stitch has worked with volleyball, lacrosse and tennis. It wasn’t until he ventured to the Swamp where he found his true training rhythm in swimming.
+Having studied kinesiology at Fresno State and LSU, Stitch has worked with sports such as volleyball, lacrosse and tennis. It wasn’t until he ventured to the Swamp where he found his true training rhythm in swimming.
 
 “Swimmers are disciplined,” he said. “It’s humbling to be around people that are so focused on what they do everyday – it makes you better.”
 
-Competing most years from September through April, swimming at UF is considered a year-long sport. With the constant get-up-and-go energy among swimming phenomena, Stitch pays special attention to maintaining each individual athlete’s energy.
+The focus and disciple are rewards reaped from a program sown with demands and challenges both in and out of the pool, producing some of the top swimmers in the nation. Intimidating? Matt Thompson thought so. Thompson, 21, a junior sports management UF swimmer, had swum competitively since he was five years old, attending and placing at multiple Junior Olympic meets. Yet, he still felt inadequate to wear orange and blue. 
 
-“There are some days where they all just looked drained,” Stitch said. “We just communicate: Every day, all day, communicating about everybody. I think a lot of people kind of feed off that.”
+“I was always looking at the [UF swimming] record boards and the wall of champions. They’ve done all these things…it’s just I’m not that good, there’s no way,” he said. “That was just kind of my mindset at the time.”
 
-Matt Thompson, 21, IM(? **what is this?) and freestyle and sports management junior, sure does.
+But the support from his club coach, Cashel Mack, quickly uprooted any of his self-doubting thoughts. After placing second in the 200-m IM (Individual Medley) and third in the 500-m freestyle at his junior year high school state meet, Mack pulled him out of the pool at his next practice and reassured him of his talent as an elite swimmer and the and potential he had yet to discover.
 
-“With the training program, you can overwork things. If you’re not feeling well and you’re having a bad practice and you just don’t speak up about it, it can look like you’re just not trying,” he said. “Communication is definitely the biggest thing.”
+“She told me, ‘Look, you really can do this, and if you want to be serious with swimming and be the best you can be, Florida is the option,” Thompson said. “From that moment, it was Florida number one all the way.”
 
-For Thompson, its crucial for athletes to be proactive in making time in their schedules to see both the trainers and coaches, especially when something is hurting.
+As a gator, Thompson, along with his 37 teammates, competes most years from September through April. With this constant get-up-and-go energy among swimming phenomena, his trainer, Stitch, pays special attention to maintaining each individual athlete’s energy.
 
-“The biggest injury would be shoulders,” said Stitch. “They can just point to where their shoulder hurts and we just already know what it is.”
+“There are some days where they all just looked drained,” Stitch said. “We just communicate: every day, all day, communicating about everybody. I think a lot of people kind of feed off that.”
 
+For Thompson, it’s crucial for athletes to be proactive in making time in their schedules to see both the trainers and coaches, especially when something is hurting.
+
+ “With the training program, you can overwork things. If you’re not feeling well and you’re having a bad practice and you just don’t speak up about it, it can look like you’re just not trying,” he said. “Communication is definitely the biggest thing.”
+ 
 To combat the wear and tear of swimming on the body, the team engages in daily weight room preventative exercises, fuels with Gatorade Prime Chews and carbohydrate powder, Vitargo, and focuses on hydrating throughout the day.
 
 “People probably don’t think about it with swimmers, but they sweat in the water so they don’t see it.” Stitch said. “It’s a little bit dangerous compared to other sports.”
 
-The sports nutrition office and weight room also also offer a variety of ways to energize the swim team. Post weight sessions call for Protein bars and shakes while snacks such as mixed nuts line shelves and a rainbow of Gatorade stocks the nutrition office fridge. But energy intake doesn’t stop at food and water.
+The sports nutrition office and weight room also offer a variety of ways to energize the swim team. Post weight sessions call for Protein bars and shakes while snacks such as mixed nuts line shelves and a rainbow of Gatorade stocks the nutrition office fridge. But energy intake doesn’t stop at food and water.
 
-“Our sport is so demanding, that it has to be a lifestyle in order to be successful,” Thompson said. “ You really want to make sure you get a good nights sleep.”
+“Our sport is so demanding, that it has to be a lifestyle in order to be successful,” Thompson said. “You really want to make sure you get a good nights sleep.”
 
--INTERVEWING THOMSPON AGAIN ON A SPECIFIC MEET MEMORY/EXPEREIENCE WHERE THEY PLAYED “SHABBA”-
+But standing behind the blocks on race day and listening to the cheers of gator teammates and fans echo throughout the pool facility is what makes the countless hours of training, athletic treatment and weight room sessions worth it.
 
-Traveling across the country to states like Texas, Minnesota and schools throughout the SEC is one of Thompson’s favorite parts of being a gator swimmer. In the locker room before his meet in ____, one of the seniors cranked up the sterero.
+“The more energy that you have from people on the side of the pool cheering you on, the more amped up you get,” Thompson said. “The support from the coaches and everyone around you is really great, and it gives you that extra gear and boost to really know that you can do it.”
 
-“Shabba” by A$ap Ferg blasted the speakers
+At the Ohio State invitational in November, Thompson put that extra gear into motion. Performing a personal best in the 200-m freestyle in the morning, he swam his way to the top-eight heat that evening.
 
-“It’s this year’s go-to song,” Thompson said. “When we hear that, we get pretty amped.”
+“I kind of proved myself in some way,” he said. And although falling short of qualifying for the national meet (NCAAs) in March, his gradual improvement in the pool has continued to fuel him. With other members of the team, Thompson ventured on the 16-hour drive to Austin to support the gators at NCAAs. Not only did he get to watch and learn from the best of college swimming, but also he helped support the men to a strong third-place team finish.
 
--INTERVIEWING THOMPSON ON HIS EXPERIENCE WITH HIS TEAMMATES AND MORE QUESTIONS SPECIFICALLY ON HIS RELATIONSHIP WITH STITCH-
+“Even times where our crew was muffled out by the hundreds of Texas fans, one of the guys said, ‘I don’t need to hear you guys, I just need to look up and see you,’” said Thompson. “We were sure to gator chomp the whole time and be loud and rowdy and make as much energy as we can for the guys.”
 
+Aspiring to represent UF at nationals his senior year, Thompson also has his eyes on something bigger: the 2016 Olympic Trials.
+
+“I didn’t make Olympic Trials for 2012…but I ended up qualifying a week after the meet was over,” he said. “If you have qualified to swim at trials and you never go, to me that is an incomplete year.
+
+With the support from coaches like Gregg Troy and Anthony Nesty and from an athletic trainer like Tommy Stitch, as well as all the brimming energy from his teammates, Thompson has little doubt in his future swimming career. 
+
+“We as humans are capable of way more than we think we are – that’s something that was kind of learned out of the pool,” he said.  “You are always capable of working harder and pushing yourself beyond the limits that you think you have set for yourself because in reality there are no limits.”
+ 
 
