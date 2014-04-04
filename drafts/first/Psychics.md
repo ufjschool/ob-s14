@@ -22,7 +22,7 @@ This ability was something she understood later on in life as functioning on a h
 
 Green practices the Jewish faith and believes in one God. 
 
-While using a crystal pendulum to assess the person’s energy field, Green works with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. 
+While using a crystal pendulum to assess the person’s energy field, Green works with a collective of more than 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. 
 
 “It is the ultimate cellphone connection,” Green said.
 
