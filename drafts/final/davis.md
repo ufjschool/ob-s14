@@ -89,7 +89,7 @@ The UF Counseling and Wellness Center provides a “relaxation room” for its p
 
 While many collegiate and professional athletes undergo feedback training as a way to stay attune with their bodies, reduce stress and enhance performance, Steel never has and may never have to. Right now, she’s just enjoying the ride.
 
-In the pitch-black Philadelphia evenings, with only running shoe reflectors as her guide, she sprints hill repeats alongside the other members of the Bryan Mawr Running Company. Preparing for the 2014 Boston Marathon, she enjoys the atmosphere of a new team, new workouts, but above all, a new inspiration.
+In the pitch-black Philadelphia evenings, with only running shoe reflectors as her guide, she sprints hill repeats alongside the other members of the Bryn Mawr Running Company. Preparing for the 2014 Boston Marathon, she enjoys the atmosphere of a new team, new workouts, but above all, a new inspiration.
 
 “When I start to think I’m crazy for choosing to continue training alongside my future career goals, I think about the fact that I am running with all people who make the effort to keep running as a part of their life because it makes them happy,” she said. “I have been so lucky to find role models and supportive friends who have shown me that it can be done.”
 
