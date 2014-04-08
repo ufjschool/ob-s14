@@ -49,7 +49,7 @@ For Jenkins, it’s about the person, not the athletic performance.
 
 “They’re not robots, they need permission to just be who they are,” she said. “Anybody who focuses on results or performances as the end all be all is really neglecting the whole process.”
 
-UF employs full time nutritionists, strength coaches, athletic trainers, and doctors to work one-on-one with athletes in all 13 sports – but not a sports counselor. While affiliated with the school, Jenkins is only employed at UF as an independent contractor. In other words, the university could drop her at any moment with no strings attached. As a result, job security serves as her biggest challenge. 
+UF employs full time nutritionists, strength coaches, athletic trainers, and doctors to work one-on-one with athletes in all 13 sports – but not a sports counselor. While affiliated with the school, Jenkins only provides a service to UF as an independent contractor. In other words, the university could drop her at any moment with no strings attached. As a result, job security serves as her biggest challenge. 
 
 Nicole Noyes, a PhD student at Indiana University Bloomington, believes the answer lies in the stigma attached to the title of “counselor.”
 
@@ -83,6 +83,13 @@ Had she chosen to pursue playing at the collegiate level, she definitely would h
 
 “Its the third day of the tournament, you’re exhausted and you know you don’t have anything; It comes down to how badly you want it and how deep you’re gonna push,” she said. “I think its then that you really find out how mentally tough you are.”
 
-But biofeedback isn’t for Steel. Right now, she’s just enjoying the ride. Two years out of Penn, and she’s lacing up her shoes for her daily runs with her running club – preparing for the Boston Marathon in late April.
+The UF Counseling and Wellness Center provides a “relaxation room” for its patients as well as its student-athletes. Here, computers stations contain software such as Wild Divine, which is used to teach people how to change physiological aspects of their body that may be affecting their mood, or in an athlete’s case, their performance. Such techniques include meditation games, breathing exercises, and learning to monitor heart rate and body temperature.
 
-“[Running] is not the priority it used to be,” she said. “It’s really like a joy, and getting to go for a run is the highlight of my day.” 
+“[Biofeedback] provides feedback on the neural changes in the body and helps bring it into our cognitive awareness, so that the participant can respond intentionally rather than reactively,” said Jenkins, who had formerly assisted UF students in the biofeedback process. 
+
+While many collegiate and professional athletes undergo feedback training as a way to stay attune with their bodies, reduce stress and enhance performance, Steel never has and may never have to. Right now, she’s just enjoying the ride.
+
+In the pitch-black Philadelphia evenings, with only running shoe reflectors as her guide, she sprints hill repeats alongside the other members of the Bryan Mawr Running Company. Preparing for the 2014 Boston Marathon, she enjoys the atmosphere of a new team, new workouts, but above all, a new inspiration.
+
+“When I start to think I’m crazy for choosing to continue training alongside my future career goals, I think about the fact that I am running with all people who make the effort to keep running as a part of their life because it makes them happy,” she said. “I have been so lucky to find role models and supportive friends who have shown me that it can be done.”
+
