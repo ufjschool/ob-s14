@@ -1,7 +1,7 @@
-###Breaking Back: The Uncertain Life of a Fisherman
+#Breaking Back: The Uncertain Life of a Fisherman
 
 
-#Part I: The Man
+###Part I: The Man
 
 Beneath the “Parental Advisory” beanie and the rough, black hoodie, the 4 a.m. shadows conceal his coon-eye tan. Andrew Balasis turns the radio dial, drowning out the eerie silence that echoes through the nearly empty streets. The 23-year-old commercial fisherman rises before dawn most days, chasing the horizon in pursuit of fish. He has a feeling today’s trip will be futile. 
 
@@ -24,7 +24,7 @@ To elaborate on the size of the massive welt it left behind – no pun intended 
 Anyone who knows Andrew thinks nothing of that story. A natural daredevil, he boasts quite of few astonishing tales, and being a fisherman only adds to the excitement. 
 
 
-#Part II: The Journey
+###Part II: The Journey
 
 A typical day begins before sunrise. Once the alarm goes off, there’s no time to waste. To be a fisherman, one cannot be overly fond of sleep. Andrew usually blasts music on the 15-minute ride from his home in Palm Beach Gardens to Jupiter, where he keeps his boat, Miss Ellie. Lana del Ray keeps him company on the journey. He nods his head to the music, matching the slightly melancholy pace of “Radio,” one of his favorite songs. Then a more upbeat song blares from the speakers, drowning out any remnants of sleep still lingering in the air. The day has officially commenced.   
 
@@ -39,7 +39,7 @@ Andrew needs fuel at the next stop, for Miss Ellie and for himself.  Luckily, th
 At the ramp, he makes the transformation from man to fisherman, clipping on his overalls and pulling on his tough rubber boots. He jumps into the truck one last time – backing up, backing up, backing up – the boat and the water inch closer together, like two lovers expectantly awaiting a kiss, until they touch. Miss Ellie and the ocean reunite. 
 
 
-#Part III: The Ocean
+###Part III: The Ocean
 He steers the boat slowly at first. The undisturbed surface of the water ripples as it approaches. But soon, he picks up speed. The fact that it’s mid-February means it’s almost the end of mackerel season. He makes the majority of his income in the winter, when he nets mackerel and mullet, so he needs to take advantage of this opportunity.    
 
 “Fishin’ for a living isn’t a guaranteed paycheck every week, it’s usually feast or famine,” he says.  “Fishing is a seasonal trade, but the weather is your boss most of the time.” 
@@ -55,7 +55,7 @@ In addition to sharks, Andrew must compete with porpoises and pelicans. Both mak
 The sun gradually ascends, illuminating the recycle bin slowly filling with mackerel, their metallic scales casting light as they flop about. By one o’clock, the bin nearly overflows. After several unsuccessful throws, Andrew decides to cut his losses and head ashore. He estimates that he caught slightly more than 100 pounds, a small amount for mackerel, which usually ranges from zero to 3,000 pounds per catch.  Like he said, the weather is his boss. 
 
 
-#Part IV: The Market
+###Part IV: The Market
 
 Andrew sells his fish to a wholesale dealer in Port Canaveral called Seafood Atlantic. Their prices vary from week to week and are based on 50 pounds or more of whole fish. Because of his sparse catch and the distance to the dealer, he decides to sell them locally instead. 
 
@@ -65,7 +65,7 @@ Once he arrives at his destination, he stand in the bed of his truck and places 
 
 One of the drawbacks to being a fisherman is the uncertainty that comes with the profession.  He never knows if the weather, supply and demand, or luck will work in his favor; kind of like Heisenberg’s uncertainty principle. He lives in suspense most of the year, awaiting his next big catch.  
 
-#Part V: The Moments of Bliss
+###Part V: The Moments of Bliss
 
 The instability of his profession never stops him from living life to the fullest. When he’s not fishing, Andrew hangs out with his friends, expresses his loyalty to Chipotle by ordering a burrito bowl daily, and never misses an opportunity to hug a pretty girl – although, his heart belongs to one lady in particular.  
 
