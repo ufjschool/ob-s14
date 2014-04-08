@@ -172,4 +172,30 @@ With the support from coaches like Gregg Troy and Anthony Nesty and from an athl
 
 “We as humans are capable of way more than we think we are – that’s something that was kind of learned out of the pool,” he said.  “You are always capable of working harder and pushing yourself beyond the limits that you think you have set for yourself because in reality there are no limits.”
  
+ ##GYMNASTICS
+ When senior Aliana Johnson enters a room her 5’1’’ stature and winning smile don’t exactly scream intense athlete, but watch her run toward a vault at full speed with nothing but concentration on her face and it’s no surprise why she is a national champion. 
+	Johnson, who is an All-American first-team for all-around in gymnastics has had a stellar senior year, and a real shot at claiming back-to-back national championships in her sport. The Texas native set an all-time Gator record score of 39. 825 in all-around. Johnson is clearly at the top of her game, but if you would have asked her this time last year if she thought she would be breaking records she would probably have given a dismissive shrug and laughed. 
+	During her junior year Johnson suffered a stress fracture in her lower back and had to sit out eight meets. She was devastated, but she didn’t let her injury discourage her spirit for too long, she said. 
+	“I mean when it first happened I was like I hope this isn’t the end of my season I hope I can still compete,” she said. 
+	Johnson threw herself into her physical therapy and before she knew it she was healthy enough to compete.  After being out for eight meets, Johnson returned to competition in the NCAA Regionals, where she scored her own personal best scores of the season.  
+	“I was so just so happy to be back in competition and then to perform so well was just the best way to come back from an injury,” Johnson said. 
+	She had expected all the hard work that would go into the psychical side of her recovery, but she hadn’t expected the one ingredient that would truly help her get back to her top performing self, nutrition. 
+	“Anyone who does gymnastics can tell you that what you eat is really important,” Johnson said. “After I fractured my back I was kind of like well I’m not competing so I don’t really have to worry about what I’m eating.”
+	Johnson soon realized just how wrong she was. 
+	“I wasn’t doing normal practice with the team, since I was hurt, so I just mostly met with the trainer and stuff and I just always felt really tired,” she said. 
+	Johnson realized that she was lacking carbs, which she usually ate a lot of in the form of fruits, since her injury and that was responsible for her lack of energy. 
+	“I think that I finally realized how important what you put in your body really is,” Johnson said. 
+	Kelsee Gomes, a sports nutritionist as the University of Florida, said that when it comes to gymnasts her main concern is making sure that they get enough protein and carbs. 
+	“They won’t condition as much in season so again it kind of becomes another strength and power sport that relays more on protein and it’s just something else that we have to look at where they are,” Gomes said. 
+	The sports nutrition program was implemented at UF in 1999, making it the second school to start a program, after Nebraska, and to this day is one of the only programs that focuses on all sports, said Sarah Snyder, a UF sports nutritionist.
+	Athletes, like Johnson, have learned to take full advantage of the nutrition program to help them throughout the season. 
+	“It’s great that I can just stop by the nutrition office and grab a snack or talk to someone to help me figure out what I need to eat to be in the best shape to compete,” Johnson said. 
+	Snyder is glad that most student athletes realize the importance of a good diet, although she admits she wishes they would get more sleep. 
+	“I think being at Florida the culture is set up where pretty much everyone knows they have access to this resource so that is a positive for us because we are working with everybody,” Snyder said. 
+	Gomes said that when it comes to being a nutritionist it’s more about the individual athlete than the sport. Some athletes will want basic guidelines, while others will want an exact breakdown. As a whole, most gymnasts will use fruit and low fat diary for their carb intake.  
+	If the gymnastics team does go on to win another National Championship this season, Johnson said the credit will lie with many people. 
+	“There are so many people that help me during the season,” Johnson said. “My teammates and coaches obviously, but so many others like trainers and nutritionists.” 
+	Snyder and Gomes are just happy that they can be part of the puzzle that makes a good athlete. 
+	“Everybody needs a nutritionist or dietitian to guide them through,” Snyder said. “It’s a year long season: inseason, preseason, offseason. These athletes don’t rest.”
+
 
