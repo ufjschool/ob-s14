@@ -7,8 +7,8 @@ Natanya: Sarah D.
 Katherine: Amber, Katina (Burlesque)  
 Alexa: Adam, Natanya 
 
-##What to look for: 
-# CQ facts 
-# Tone 
-# Grammer 
-# Structure 
+#What to look for: 
+* CQ facts 
+* Tone 
+* Grammer 
+* Structure 
