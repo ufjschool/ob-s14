@@ -2,11 +2,11 @@
 
 Looking at the European snow-capped mountains for the last time, Agata Strausa knew she was going to need much more than coffee and her favorite dark chocolate to get her through this trip.
 
-Two years ago, Strausa, now 24, chose to leave behind her Latvian family and her career in product design at the Berlin Academy of Arts to pursue her dream to become a professional distance-runner.
+Two years ago, Strausa, now 24, chose to leave behind her Latvian family and her career in product design at the Art School Berlin Weissensee to pursue her dream to become a professional distance-runner.
 
 “When I saw the plane take off, it was very strange,” she said. “I thought how within a minute a life can totally change and how blessed I was to have this opportunity to start as somebody else, somewhere else.”
 
-Trying to relax on the ten-hour flight to Gainesville, she closed her eyes and counted the upcoming days: One day until she’d be in another country. Ten days until she’d walk into her first UF art history class. And 30 until she’d lace up her spikes, slip on her orange and blue jersey and compete for the first time as a UF mid-distance track runner. 
+Trying to relax on the ten-hour flight to Gainesville, she closed her eyes and thought about the upcoming days. In less than 24 hours, she’d be in another country and walk into her first UF art history class. And in a month, she’d lace up her spikes, slip on her orange and blue jersey and compete for the first time as a UF mid-distance track runner. 
 
 “Energy is more in the mind than in the body,” she said. “It’s not so much about how you fuel yourself and your body but more like how your attitude is.”
 
@@ -14,7 +14,7 @@ Strausa was pretty much born motivated. Determined to balance both athletics and
 
 “German universities don’t know a collegiate competitive athletic program, so academics and athletics were separated with little understanding of each other,” she said. “I had to beg professors to excuse my absence if I had to compete somewhere.”
 
-To add to her troubles, the German Athletic Association had forbidden Strausa’s coach, Beate Conrad (German national coach of women’s distance running and former Olympian) to continue coaching Strausa since she was technically a citizen of Latvia and therefore a potential competitor to Germany. 
+To add to her troubles, the German Athletic Association had forbidden Strausa’s coach, Beate Conrad (who at that time was the German national coach for women’s distance running) to continue coaching Strausa since she was technically a citizen of Latvia and therefore a potential competitor to Germany. 
 
 “Without a coach or a support system, I couldn’t make my dream to be an elite runner come true,” she said.
 
