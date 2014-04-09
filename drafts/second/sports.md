@@ -1,6 +1,6 @@
 ##MEN'S BASKETBALL 
 
-When the Gators took on the Kentucky Wildcats at Rupp Arena on February 15, ESPN displayed before-and-after pictures of UF seniors Will Yeguete, Casey Prather and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think (Michelangelo sculpted them himself/ you were looking at a picture in an anatomy textbook). Those three men who 
+When the Gators took on the Kentucky Wildcats at Rupp Arena on February 15, ESPN displayed before-and-after pictures of University of Florida seniors Will Yeguete, Casey Prather and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think (Michelangelo sculpted them himself/ you were looking at a picture in an anatomy textbook). Those three men who 
 were once lanky and looked like your average teenager about to play basketball at the neighborhood court are now some of the strongest in the nation for college men’s basketball. All are a product of Preston Greene’s training programs. 
 
 Greene has been the team’s strength and conditioning coordinator for three seasons. Every day, year round, he’s with the team making them stronger, more flexible and faster than the day they were recruited. He’s the guy on the court before the game stretching the players out who all the girls in the stands wish they could be. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is, literally, the most hands on. 
