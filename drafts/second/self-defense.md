@@ -6,7 +6,7 @@ For one woman, he is the high school football player she couldn’t push away at
 
 “Stop!” they yell, somewhat startled by their own voices at first. They muster more confidence to shout “stay back!” before kicking his groin or striking hard at his face. They make a run for the door, and the experience is over as quickly as it began.
 
-The participants in the Rape Aggression Defense program are never really alone, though, or in any danger. Certified R.A.D. self-defense instructors are behind them the whole time yelling suggestions and encouraging words, which they hope will come back to the women in a real violent encounter.
+The participants in the Rape Aggression Defense program are never really alone, though, nor in any danger. The aggressors are actually police officers in protective padding who simulate attacks for the women while certified R.A.D. self-defense instructors stay near to yell suggestions and make sure no one gets hurt. The supportive voices of fellow self-defense students cheer them on from the sidelines.
 
 R.A.D. Systems are the world’s largest network of self-defense programs designed for women. R.A.D. instructors have taught more than 900,000 women the basics of personal safety and hands-on techniques since its founding in 1989, according to its website.
 
@@ -14,13 +14,17 @@ University of Florida Police Department’s program is unlike most. It is funded
 
 Women can register for a series of four classes that take place over two weeks. Following an informational overview of risk reduction and avoidance, the class progresses to learning and practicing moves such as blocking, hitting and kicking. The participants put their skills to the test on the final night by escaping three increasingly difficult attack simulations.
 
+The course goes beyond teaching women practical techniques, though, to convincing participants of their own strength and capability. Many notice a dramatic change in their self-confidence in day-to-day life.
+
 Danna Regnier, 21, couldn’t walk anywhere alone without remembering being bullied and beat up as a girl in China. The UF sophomore and Innovation Academy student decided it was time to change that by taking the R.A.D. course and found herself reliving those experiences during simulations, she said.
 
-“I thought I was going to pass out the moment I stepped in the door,” Regnier said. “Especially in the second one, it was dark so it looked just like the night I was beaten up.”
+“I thought I was going to pass out the moment I stepped in the door,” Regnier said.
 
 After struggling to find her voice, Regnier fought back and kept fighting to successfully escape each scenario. Those victories have given her the confidence to walk with her chin up from now on, she said.
 
 “I used to be afraid of just being by myself walking on the street,” Regnier said. “You can hear it in my voice I’m not afraid of going out anymore.”
+
+Sydney Richardson, 20, had a similar experience of finding new self-assurance after completing the course April 2. The third-year UF digital arts and sciences student was walking home on campus recently when she noticed a car was following her with the passenger recording her on his smart phone.
 
 UF psychology freshman Laura Bautista, 18, took the class after finding herself on her own for the first time when her parents moved from her hometown of Miami to Texas around the time she started college.
 
@@ -52,7 +56,7 @@ For example, professional child advocate Morgan Bright, 23, has been a R.A.D. in
 
 “I’m going to be sad that I won’t see everybody as often because we’re a pretty tight-knit group,” Bright said of the other regional instructors. “I’ve gotten such a great response from the community, though. It’s been amazing.”
 
-A survivor of two sexual assaults in high school, Bright was encouraged to take the R.A.D. class by her mother when she started college at University of South Florida. Unprepared for the emotional triggers that would bring those memories back, she broke down crying during simulations and got help from the victim advocate who was there.
+A survivor of two sexual assaults in high school, Bright was encouraged to take the R.A.D. class by her mother when she started college at University of South Florida. Unprepared for the emotional triggers that would bring those memories back, she got help from the victim advocate who was there during attack simulations.
 
 It took three years for Bright to go back, but she credits the R.A.D. class with forcing her to confront the past and move on with her life.
 
