@@ -275,111 +275,98 @@ Nichols does say that more individual scientists, if not science as a whole, are
 
 #Emilie Shinskie 
 
-I was curious; curious about who these people were and skeptical about what they did.
+I was curious, curious about who these people were and skeptical about what they did. 
 
-I walked into the Engineering Building on UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. On their website, they claimed to be “everyday people,” passionate and interested in researching and investigating paranormal activity.  
+I walked into the Engineering Building on the UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. On their website they claimed to be “everyday people,” passionate and interested in researching and investigating paranormal activity.  
 
-Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a doctoral student in anthropology at UF and member of the nonprofit organization, shook my hand kindly. They were more professional and gentler-looking than I had imagined. 
-	
-“‘I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
-	
-Boothby and Bolejack help explain the unexplainable. They calm the frightened, and along with the rest of their team, they investigate all things bizarre: the noises, the smells, the sightings. “It’s about helping people, helping them not to be afraid in their own homes, giving them ways to deal with what’s going,” Boothby said. 
+Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a PHD student in Anthropology at UF and member of the non-profit organization, shook my hand kindly. 	
 
-Humbled. That perfectly describes what I felt the rest of the evening. Boothby and Bolejack weren’t typical ghost hunters. They weren’t seeking a high or a thrill, but wanted to help people, people experiencing the abnormal, the paranormal.
+They were more professional and gentler-looking than I had imagined. I felt silly for carrying my pepper spray along with me, thinking that I’d have to protect myself from something paranormal that might have tagged along for the interview.    
 
-“Paranormal activity is activity created by unknown forces that we do not understand,” Bolejack said. Unlike parapsychologists who believe that paranormal activity is mostly caused by the energy of living people, as paranormal researchers, Boothby said that they believe that the deceased cause paranormal activity.
+“ ‘I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
 
-I wondered what they were talking about. They took all of this so seriously. If I ever came across something paranormal, how would I know? 
+Alongside the rest of their team, Boothby and Bolejack investigate all things bizarre: the noises, the sightings, the smells. Together they attempt to explain the unexplainable. 
+
+“It’s about helping people, helping them not to be afraid in their own homes, giving them ways to deal with what’s going,” Boothby said. 
+
+Humbled. That perfectly describes what I felt. Boothby and Bolejack weren’t typical ghost hunters.  They weren’t seeking a high or a thrill, but wanted to help people, people experiencing the abnormal, the paranormal, (though I still wasn’t quite sure what that actually meant.)
+
+“Paranormal activity is activity created by unknown forces that we do not understand,” Bolejack said. 
+
+According to Boothby, there can be many different interpretations of who or what these “unknown forces” are and what sort of activity is actually occurring. For example, unlike parapsychologists who believe that paranormal activity is mostly caused by the energy of living people, as paranormal researchers, Boothby said they believe that the deceased cause paranormal activity. This affects how FPI approaches situations with clients and paranormal activity in general.  
 
 “A lot of experiences range from spiritual to more paranormal to something just strange and unnatural,” Boothby said. 
 
-According to the FPI, people experience paranormal activity on different levels and in different ways, including audibly, visually and sensationally. People claim to hear footsteps, rustling, conversations, or voices saying their name when there is no one else around. They might see apparitions- a ghostlike image of a person. Or they might feel static sensations or sense that someone is watching them. According to Boothby, audible experiences seem to be the most common.  
+According to FPI, people experience paranormal activity on different levels and in different ways, including audibly, visually and sensationally.People claim to hear footsteps, rustling, conversations or voices saying their name when no one else is around. They might see apparitions- a ghostlike image of a person, or they might feel static sensations or sense that someone is watching them. According to Boothby, audible experiences seem to be the most common. 
 
-How frightening, I thought, to be bombarded with the noises, the suspicions and the question of, “Am I crazy?”
+How frightening, I thought, to be bombarded with noises and suspicions and the question of: “Am I crazy?” I couldn’t recall ever experiencing something as I’ve described above, something paranormal I suppose, but I began to feel an inevitable hopelessness for the people who did. 
 
 The two questions Bolejack and Boothby said they answer the most are: “Am I crazy?” and “Is my house haunted?” 
 
-“People are questioning their sanity, and that’s an extreme state to be in when you’re questioning whether you’re crazy or not,” Boothby said. Boothby said they tell clients, “We’re here to listen. We’re not going to judge you. We’ve heard it all, and we’re going to help you determine what’s paranormal. We’re here to help you find a solution.” 
+“People are questioning their sanity, and that’s an extreme state to be in when you’re questioning whether you’re crazy or not,” Boothby said. 
+ 
+The FPI team tells clients, “We’re here to listen. We’re not going to judge you. We’ve heard it all, and we’re going to help you determine what’s paranormal. We’re here to help you find a solution.” 
 
-And that’s just what the FPI do: they find solutions. 
+And that’s just what they do; they find solutions. 
 
-According to their website, when clients call the Florida Paranormal Investigations team, they are asked a series of about 80 questions, including questions regarding the home they are living in, information about the people living in the home and details of the weird experiences they’ve had.  
+According to their website, when clients call Florida Paranormal Investigations, they are asked a series of about 80 questions, including questions regarding the home they are living in, information about the people living in the home and details of the weird experiences they’ve had.  
 
-After doing a baseline test, the FPI team plans an investigation. At night, they arrive at the house assumed to have bizarre activity with equipment such as cameras, audio recorders, K2 meters and laptops. From anywhere between three to six hours, the FPI pays close attention, documenting any sights, sounds or smells. 
+After doing a baseline test, the FPI team plans an investigation. At night, they arrive to the home assumed to have bizarre activity with equipment such as cameras, audio recorders, K2 meters and laptops. From anywhere between three to six hours, FPI pays close attention to the environment of the home, documenting any sights, sounds, smells or sensations. 
 
-What about the clients, I wondered? Where do they go during an investigation?  
+According to Bolejack, they do not ask clients to leave their homes during investigations but prefer for them to stay in a particular area of the house for the duration of the investigation and to stay as quiet as possible. 
 
-According to Bolejack, the FPI doesn’t ask clients to leave their homes during investigations, but they do prefer for them to stay in a particular area of the house for the duration of the investigation and stay as quiet as possible. Unless the FPI wants to use the clients’ pets, they too, are asked to remain in a confined area of the house. 
+Unless the FPI wants to use the clients’ pets, then they too, are asked to remain in a confined area of the house. Bolejack said that they sometimes like to use clients’ pets as tools. They are more sensitive to paranormal activity than we are as individuals,” Bolejack said. “They also can’t lie, and they can’t make things up which makes them a great asset,” he chuckled. 
 
-Bolejack said that they do sometimes like to use clients’ pets as tools. “They are more sensitive to paranormal activity than we are as individuals,” Bolejack said. “They also can’t lie, and they can’t make things up which make them a great asset,” he chuckled. 
+For example, if a dog has been claimed to bark at a corner of the house at the same time every night, that’s an indication that something bizarre is going on. This doesn’t necessarily confirm that something paranormal is going on, but the dog’s tendency causes the FPI team to be more curious about that specific corner and the activity that might be going on there, Bolejack said.  
 
-For example, if a dog has been claimed to bark at a corner of the house at the same time every night, that’s an indication that something bizarre is going on. This doesn’t necessarily confirm that something paranormal is going on, but the dog’s tendency causes the FPI to be more curious about that specific corner and the activity that may be going on there, Bolejack said.  
+The same applies to children as well. Bolejack said that children often play an important role while investigating, because unfortunately whatever oddities are occurring, it usually involves them. According to Bolejack, when children become so bothered by something and the parents feel helpless, they call FPI.
 
-The same applies to children as well. Children often play an important role while investigating, because sadly, whatever oddities are going on, it usually involves them. When children become so bothered by something and the parents feel helpless, they call the FPI.
-
-“'Are you gonna make the ghosts go away?’ and you look at them and you’re like, what do I say to that?” Bolejack said. 
+“ “Are you gonna make the ghosts go away?’ ” children often ask. “You look at them and you’re like, what do I say to that?” Bolejack shrugged. 
 	
-Bolejack and his team said that they don’t necessarily know how to make the ghosts go away, but they do know how to either diagnose the home of having paranormal activity or debunk the home of paranormal activity. 
+FPI said that they don’t necessarily make the ghosts go away, but they do either diagnose the home of possessing paranormal activity or debunk the home of paranormal activity. From there they point the client in the right direction. 
 
-Debunk. That word sounded like something from a Halloween cartoon movie. How do I spell that and what does that mean I wondered? 
+I asked Boothby to repeat this word, debunk. It sounded like something from a Halloween cartoon movie. I wrote the word down. I was beginning to understand who Bolejack and Boothby were: knowledgeable researchers of paranormal activity and compassionate people hoping to fight paranormal crime in others’ lives, but I still couldn’t grasp it all. I sat at the table, a seat next to Boothby and a seat across from Bolejack, wondering if it were for some greater purpose that I’d met them, talking with them about something I knew so little about. I looked back down at the word written in my notebook: debunk. 
 
-According to the FPI, when they enter into an investigation, they do so with the hope that they will be able to find alternative answers to the odd activity that is occurring there. This is called debunking.
+According to FPI, when they enter into an investigation, they do so with the hope that they will be able to find alternative answers to the odd activity that is occurring there. This is called debunking.
 
-For example, electromagnetic fields (EMF) occur naturally in appliances and all things that use electricity, Boothby explained. When the EMF is too high in a certain location, for instance if an appliance is giving off too much EMF, a person might experience symptoms that are similar to paranormal symptoms but are not. It is then the FPI’s job to confirm with the client that the symptoms they are experiencing are not due to paranormal activity. They can be at ease. 
+For example, according to Bolojack, electrical appliances produce man-made electromagnetic fields. FPI refers to what is being produced as “EMF.” When the EMF is too strong in a certain location, for instance if an appliance is producing a strong amount of EMF, a person might experience strange symptoms from that EMF, such as paranoia. A symptom like paranoia is similar to what someone might feel if they are experiencing something paranormal. After measuring the strength of EMF with a device called a K2 meter, FPI claims the ability to distinguish whether such a symptom is due to paranormal activity or to strong EMF. If they can conclude that the paranoia is due to strong EMF then they’ve debunked the situation of paranormal activity.  
 
-Boothby had her own experience with this. She was doing an investigation at an Inn with her team and while sitting in corner of a bedroom at the Inn, she began to feel a sense of paranoia. She asked her teammates to bring out a K2 meter, a device used for recording and measuring the strength of an electromagnetic field. The meter read that the alarm clock next to her was giving off a very high amount of EMF. Boothby was immediately able to debunk the paranoia she was feeling. Her paranormal-like symptoms were not because of paranormal activity, but because the alarm clock was emitting too much EMF.
+According to Boothby, people react differently to different amounts of EMF, which causes some more than others to feel bothered and fear that they are experiencing something paranormal. 
 
-According to Boothby, different people can handle different amounts of EMF, which causes some more than others to feel bothered and fear that they are experiencing something paranormal. 
+The FPI can also debunk claims of paranormal activity by proving that the scratching they are hearing is a tree limb on a window, or that the weird noises are really just coming from the expanding and contracting of old metal water pipes. 
 
-The FPI can also debunk the claims made by clients by proving that the scratching they are hearing is a tree limb on a window, or that the weird noises are really just coming from the expanding and contracting of old metal water pipes. 
+These sorts of conclusions comfort clients. But FPI can’t always debunk a claim. The paranoia can’t always be fixed by an electrician or by installing new water pipes.
 
-But what if the FPI can’t debunk a claim? What if the paranoia can’t be fixed by an electrician or by installing new water pipes?  
+After carefully sifting through and analyzing their findings from an investigation, FPI decides what they can and cannot prove, what they can and cannot debunk. “You kind of narrow it down and be like, OK, only these claims left are the ones we can’t explain,” Boothby said.
+ 	 
+FPI said that it is their goal is to provide clients with tangible evidence, evidence proving that something can be debunked or evidence proving that there is in fact abnormal, unexplainable activity occurring. They use things such as their video and audio recordings and personal experience of being in the home as evidence.
 
-For instance, according to the FPI, it is believed that entities can manipulate the EMF fields to make the K2 meters go off. What then?
+If they have reason to believe that paranormal activity is present, they offer clients the service of having their home “cleansed” of any activity. The FPI team doesn’t do this themselves but provides clients with references who can, whether this be religious authorities or individuals who deal with other mediums.  
 
-After carefully analyzing their findings from an investigation, the FPI decides what they can and cannot prove, what they can and cannot debunk. “You kind of narrow it down and be like, OK, only these claims left are the ones we can’t explain,” Boothby said.
- 	
-The FPI’s goal is to provide clients with tangible evidence, evidence proving that something can be debunked or evidence proving that there is in fact abnormal, unexplainable activity occurring.
+After an investigation FPI said that they keep in contact with their clients, answering further questions and ensuring further peace of mind. 
 
-If they can debunk a house of paranormal activity and if the client chooses to believe the evidence, this can bring great comfort and relief to the household. If the FPI cannot debunk something, they offer clients the service of having their home “cleansed” of any activity, whether the activity is evil or not. The FPI doesn’t do this themselves but provides clients with references who can, whether this be religious authorities or individuals who deal with other mediums. 
+Bolejack reminds clients that not all paranormal activity is evil or harmful, but the stress and the fear that clients undergo can be detrimental to their mental, emotional and physical health. This encompasses not only their fear that they may be experiencing the paranormal, but the fear to tell others about what they are experiencing. 
 
-The FPI said that after an investigation they keep in contact with their clients, answering further questions and ensuring further peace of mind. 
+An hour and a half had gone by. I had more t’s to cross and i’s to dot, but I was too consumed, consumed in who Boothby and Bolejack were as people and what good they did for others, others with problems I had no idea about.  
 
-An hour had gone by and I had already learned so much of what these people do and their hearts behind it.  
-	
-“We don’t do it just to conjure up something,” Bolejack said. “There’s a lot of things you don’t want to conjure up to say the least.”
+“When we go to people and they say “I’ve never told anyone about this,’ it’s this gush of relief that they have and instantly, even without doing the investigation, we’ve helped them physiologically, just being able to let them open up and share what they’ve experienced,” Boothby said.  “I think if people were more open about hearing about paranormal experiences without being judgmental, I think a lot more people would be helped right off the bat.” 
 
-Though Bolejack reminds clients that not all paranormal activity is evil or harmful, the stress and the fear that clients undergo can be detrimental to their mental, emotional and physical health.This encompasses not only their fear that they may be experiencing the paranormal, but the fear to tell others about what they are experiencing. 
+I thought about this statement during the rest of my interview with Boothby and Bolejack and continued to think about it after saying good-bye, after walking out of the Engineering Building and back home through the empty space of campus. I realized that I hadn’t remained completely objective in my time with them; I’d been impacted. Would I be willing to listen and help someone experiencing the paranormal? Had I been judgmental? I couldn’t shake these questions. All else said after Boothby’s statement were only details that filled the holes in the story I wanted to tell. 
 
-“When we go to people and they say “I’ve never told anyone about this,’ it’s this gush of relief that they have and instantly, even without doing the investigation, we’ve helped them physiologically, just being able to let them open up and share what they’ve experienced,” Boothby said. 
+FPI said they were part of a network of paranormal investigation teams in Florida and around the nation. At a moment’s notice they can call upon their sister team in St. Augustine for help. 
 
-They kept repeating this idea of wanting others to feel the freedom to talk openly about these experiences. I could tell it was important to them. They cared. 
+They receive calls weekly from people inquiring about paranormal activity. The month of October is their busiest month. They pursue private investigations within a 2-hour radius of Gainesville and will refer investigations outside of this radius to other teams. 
 
-“I think if people were more open about hearing about paranormal experiences without being judgmental, I think a lot more people would be helped right off the bat,” Boothby said.
+FPI doesn’t consider Gainesville to be a haunted city. Because it isn’t a haunted city, they believe that people aren’t too quick to assume that something strange is automatically something paranormal, thus FPI doesn’t do very many private investigations in Gainesville. 
 
-Was I one of these people? Would I be judgmental if someone told me their story? I thought about this question during the rest of my time with the FPI and continued to think about it after saying good-bye, after walking out of the Engineering Building and back home through the empty space of campus at night.   
+They said they believe that ghost stories stick around when generations of people live in a city. They think that because the UF replenishes Gainesville with a new population every year, the stories don’t stick. 
 
-The FPI said they are part of a network of paranormal investigation teams in Florida and around the nation. At a moment’s notice they can call upon their sister team in St. Augustine for help. 
+But FPI doesn’t chase the hype and the glam and the glitz of ghost stories. They chase truth and the people that the truth affects.    
 
-They receive calls weekly from people inquiring about paranormal activity. The month of October is their busiest month. They pursue private investigations within a two-hour radius of Gainesville and refer investigations outside of this radius to other teams. 
+“It’s no longer a kid story. It’s no longer fables and myths,” Bolejack said. “It’s more and more people coming to terms with ‘there is something out there; we may not understand it, but there is something out there.’ More and more people are coming out to acknowledge that.”   
 
-The FPI doesn’t consider Gainesville to be a haunted city. Because it isn’t a haunted city, they believe that people aren’t too quick to assume that something strange is something paranormal, thus they don’t do many private investigations in Gainesville. 
+And I, too, for the first time was beginning to acknowledge this.  
 
-The FPI believes that ghost stories stick around when generations of people live in a city. They said because of the university, Gainesville’s population is constantly being replenished with new people. The stories don’t stick. But they wouldn’t consider what they research to be ghost stories. 
-
-“Knowledge is power; the imagination is crazy, but knowledge is power,” Bolejack said. “When we show up, we’re serious. We don’t come in trying to scare you back.” 
-
-The FPI seeks to know the truth about paranormal activity and the people it affects. They don’t seek the hype and the glam and glitz of ghost stories. “Our website, it’s not black, it doesn’t have bleeding letters all over it,” Bolejack said. “That’s something I’m proud of.” 
-
-They were very proud of what they do; I could see it. 
-
-“I’m proud to even go back to my own father now and say ‘look at what I do,’ “ Bolejack said. Coming from a long line of ministers in his family, he said he was raised to help people. 
-
-And help is what he does. It’s what they all do, volunteering their time to investigate paranormal activity. 
-
-“It’s no longer a kid story; It’s no longer fables and myths,” Bolejack said. “It’s more and more people coming to terms with ‘there is something out there; we may not understand it, but there is something out there.’ More and more people are coming out to acknowledge that.”   
-
-And that night I acknowledged it, every bit of it.
 
 ####Ghosts or no ghosts?
 
