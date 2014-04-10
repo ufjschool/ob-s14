@@ -8,11 +8,15 @@ Tracing its roots back before the Civil War, the University of Florida has quite
 
 With death and history comes the inevitable –- the ghost story. 
 
-###BEATY 
+From haunted elevators to a suicide legend involving one of Tom Petty's most famous songs, these stories live on, passed from class to class. Regardless of whether they actually happened, they are a permanent part of UF history. 
 
-“The lights were all off.”
+Curious? We'd like to take you on a ghost tour through some of the weirdest rumors the Gator Nation has to offer.
 
-It happened in Beaty Towers East, on the third floor. Ben Dostovic was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, Dostovic's friend. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
+Keep reading, if you dare.
+
+####"The lights were all off" 
+
+It happened in Beaty Towers East, on the third floor. Ben D. (he didn't want his last name used) was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, Ben's friend. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
 
 “He ignored it at first and tried going back to sleep,” Romero said, her voice filled with the thrill of telling a scary story.
 
@@ -20,15 +24,16 @@ Then, he heard something bang loudly against his door. Annoyed, he got out of be
 
 No one was in the room, and the lights were all off.
 
-Dostovic checked the bathroom to make sure his roommates hadn’t ducked in there to hide. Nothing. Figuring they’d run back into their own rooms, he flung open their door.
+Ben checked the bathroom to make sure his roommates hadn’t ducked in there to hide. Nothing. Figuring they’d run back into their own rooms, he flung open their door.
 
-Only one roommate was home, and he was sound asleep. When Dostovic woke him up, he had no idea what was going on.
+Only one roommate was home, and he was sound asleep. When Ben woke him up, he had no idea what was going on.
 
-And that was only the first time, Romero said. Another night, Dostovic was trying to fall asleep when he heard the sound again – chairs moving in the common room. No one was home.
+And that was only the first time, Romero said. Another night, Ben was trying to fall asleep when he heard the sound again – chairs moving in the common room. No one was home.
 
 He ignored it until he saw his doorknob turn, slowly.
 
 “He didn’t go to sleep that night,” Romero said.
+
 
 ####A Little History
 
@@ -75,7 +80,13 @@ However, he said he has never seen any records to indicate the song is based on 
 
 UF spokesman Steve Orlando echoes Van Ness in his claim that nobody has committed suicide by jumping from Beaty Towers, according to an August 2009 article from The Independent Florida Alligator (http://www.alligator.org/news/campus/article_28668d1f-4473-57b1-9d52-ddce62158263.html). Orlando said he has met Tom Petty in person and that the singer said the rumors were completely false.
 
-Despite these repeated denials, the Tom-Petty-Beaty-Towers-suicide legend stubbornly lives on. Even the Wikipedia page for “American Girl” has a section devoted to the rumor. Whenever I hear that Tom Petty song, the looming shape of Beaty inevitably comes to mind. 
+Through repeated denials, the Tom-Petty-Beaty-Towers-suicide legend stubbornly lives on. Even the Wikipedia page for “American Girl” has a section devoted to the rumor. Whenever I hear that Tom Petty song, the looming shape of Beaty inevitably comes to mind.
+
+I asked current Beaty resident Wallis O'Hagan, 20, what she thought of the whole business. Surprisingly, neither she nor her roommate had ever heard of it -- or seen any evidence that their dorm was haunted.
+
+"This is honestly the first I'm hearing about this," she said.
+
+I realized I'd just helped the legend live on.
 
 **last section will contain more testimony/opinions/thoughts from students**
 
@@ -369,5 +380,18 @@ And help is what he does. It’s what they all do, volunteering their time to in
 “It’s no longer a kid story; It’s no longer fables and myths,” Bolejack said. “It’s more and more people coming to terms with ‘there is something out there; we may not understand it, but there is something out there.’ More and more people are coming out to acknowledge that.”   
 
 And that night I acknowledged it, every bit of it.
+
+####Ghosts or no ghosts?
+
+We've come to the end of our tour. Some of us saw ghosts, some of us simply experienced the quiet of old buildings and the sensations of history. We've talked to students, like us, who have seen, heard and felt things they could not understand. We've talked to professionals who know more about the supernatural than we ever will. We even tried our hand at ghost hunting, emerging from the corridors of Norman Hall without proof that ghosts exist -- but still unable to say with certainty that they don't. 
+
+Maybe hauntings happen, maybe they are simply dripping faucets that can be explained away. Maybe people who believe in ghosts see ghosts. Maybe, we're not meant to know for sure. 
+
+Even if the University of Florida isn't haunted by unfortunate school children or suicidal American girls, the rumors live on like restless spirits. It's part of the culture that colors the school and adds character to the experience of four years here. We'll keep our ghost stories, true or not -- just because they belong to us.  
+
+So next time you find yourself the only one in your Beaty Towers dorm or walking down an empty Norman hallway, remember you might not actually be alone.  
+
+
+
 
 	
