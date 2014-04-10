@@ -283,7 +283,7 @@ Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Steph
 
 They were more professional and gentler-looking than I had imagined. I felt silly for carrying my pepper spray along with me, thinking that I’d have to protect myself from something paranormal that might have tagged along for the interview.    
 
-“ ‘I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
+“ 'I’ve never told anyone this before because I didn’t think anyone would believe me; they’d think I was crazy.’ I hear that one line; I’ve heard it dozens of times,” Boothby said. 
 
 Alongside the rest of their team, Boothby and Bolejack investigate all things bizarre: the noises, the sightings, the smells. Together they attempt to explain the unexplainable. 
 
@@ -321,7 +321,7 @@ For example, if a dog has been claimed to bark at a corner of the house at the s
 
 The same applies to children as well. Bolejack said that children often play an important role while investigating, because unfortunately whatever oddities are occurring, it usually involves them. According to Bolejack, when children become so bothered by something and the parents feel helpless, they call FPI.
 
-“ “Are you gonna make the ghosts go away?’ ” children often ask. “You look at them and you’re like, what do I say to that?” Bolejack shrugged. 
+“ 'Are you gonna make the ghosts go away?' ” children often ask. “You look at them and you’re like, what do I say to that?” Bolejack shrugged. 
 	
 FPI said that they don’t necessarily make the ghosts go away, but they do either diagnose the home of possessing paranormal activity or debunk the home of paranormal activity. From there they point the client in the right direction. 
 
