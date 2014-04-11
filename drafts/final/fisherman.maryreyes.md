@@ -9,7 +9,7 @@ Beneath the “Parental Advisory” beanie and the rough, black hoodie, the 4 a.
 
 With mackerel season almost over, his chances of making a good catch are slim anyway. After paying for gas, he will most likely lose money on today’s venture.  
 
-If nothing else, at least he’ll be able to send some of his signature Snapchats. His friends receive videos of him jamming out in the car on his early drives, energy drink in hand, almost daily. His job description on Facebook summarizes his straightforward, yet humorous perspective. It reads, “Killing animals at Atlantic Ocean.” His winning sense of humor helps him endure the backbreaking work of his profession. 
+If nothing else, at least he’ll be able to send some of his signature Snapchats. His friends receive videos of him jamming out in the car on his early drives, energy drink in hand, almost daily. His job description on Facebook summarizes his straightforward, yet humorous, perspective. It reads, “Killing animals at Atlantic Ocean.” His winning sense of humor helps him endure the backbreaking work of his profession. 
 
 “If I had to describe him in one word, I’d say he’s a badass,” said Luis Muniz, Andrew’s friend of nearly 10 years. “He’s the hardest worker I know.” 
 
@@ -34,7 +34,7 @@ Once he arrives at the storage yard, it’s time to hitch Miss Ellie to the back
 
 Most days, he works in solitude, the squeaking of the handle responding to his unuttered thoughts before he jumps back into the truck and drives away. 
 
-Andrew needs fuel at the next stop, for Miss Ellie and for himself.  Luckily, the gas station sits adjacent to a Dunkin’ Donuts. He fills up the tank, transfers his equipment from the truck to the boat in preparation for the day’s work, and picks up an orange Gatorade. The restaurant has just opened by the time he finishes. He orders a medium coffee and nothing more- just enough to give him a boost before heading to his final destination. 
+Andrew needs fuel at the next stop, for Miss Ellie and for himself.  Luckily, the gas station sits adjacent to a Dunkin’ Donuts. He fills up the tank, transfers his equipment from the truck to the boat in preparation for the day’s work, and picks up an orange Gatorade. The restaurant has just opened by the time he finishes. He orders a medium coffee and nothing more - just enough to give him a boost before heading to his final destination. 
 
 At the ramp, he makes the transformation from man to fisherman, clipping on his overalls and pulling on his tough rubber boots. He jumps into the truck one last time – backing up, backing up, backing up – the boat and the water inch closer together, like two lovers expectantly awaiting a kiss, until they touch. Miss Ellie and the ocean reunite. 
 
@@ -61,15 +61,15 @@ Andrew sells his fish to a wholesale dealer in Port Canaveral called Seafood Atl
 
 The intricate chain functions similarly to a drug cartel. Andrew provides fish to the dealers, who in turn sell it to the clients. Without him, the chain ceases to exist. He stars as Heisenberg in his own version of “Breaking Bad.”
 
-Once he arrives at his destination, he stand in the bed of his truck and places the fish into a large Styrofoam bin filled with ice before the chef wheels the product of Andrew’s hard work into the building. The price of his labor totals just $151, $1 per pound of mackerel. 
+Once he arrives at his destination, he stands in the bed of his truck and places the fish into a large Styrofoam bin filled with ice before the chef wheels the product of Andrew’s hard work into the building. The price of his labor totals just $151, $1 per pound of mackerel. 
 
-One of the drawbacks to being a fisherman is the uncertainty that comes with the profession.  He never knows if the weather, supply and demand, or luck will work in his favor; kind of like Heisenberg’s uncertainty principle. He lives in suspense most of the year, awaiting his next big catch.  
+One of the drawbacks to being a fisherman is the uncertainty that comes with the profession.  He never knows if the weather, supply and demand, or luck will work in his favor, kind of like Heisenberg’s uncertainty principle. He lives in suspense most of the year, awaiting his next big catch.  
 
 ###Part V: The Moments of Bliss
 
-The instability of his profession never stops him from living life to the fullest. When he’s not fishing, Andrew hangs out with his friends, expresses his loyalty to Chipotle by ordering a burrito bowl daily, and never misses an opportunity to hug a pretty girl – although, his heart belongs to one lady in particular.  
+The instability of his profession never stops him from living life to the fullest. When he’s not fishing, Andrew hangs out with his friends, expresses his loyalty to Chipotle by ordering a burrito bowl daily, and never misses an opportunity to hug a pretty girl – although his heart belongs to one lady in particular.  
 
-His love for the sea and pride in being in fisherman is apparent to everyone he encounters – and not simply because of his passion. He sports a Hogfish tattoo on his left forearm and an entire sleeve on his right. Complete with a net, a lobster, the ocean, a kingfish, and a mutton snapper, the vivid scene serves as a visible sign of his love for the sea. 
+His love for the sea and pride in being in fisherman is apparent to everyone he encounters, and not simply because of his passion. He sports a Hogfish tattoo on his left forearm and an entire sleeve on his right. Complete with a net, a lobster, the ocean, a kingfish, and a mutton snapper, the vivid scene serves as a visible sign of his love for the sea. 
 
 “Fishing can be very rewarding to someone who enjoys it, but it’s the hardest, most backbreaking work you can imagine,” he says.
 
