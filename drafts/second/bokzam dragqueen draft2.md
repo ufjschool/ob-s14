@@ -58,7 +58,7 @@ Erik has been a drag queen for five years. At 17, he began experimenting with wi
 
 “I started out looking like an ugly stepsister,” he says frankly.
 
-Still, he was good enough as a newcomer to win one of the UC’s amateur nights, and that was when he met Kelsey Divine, the queen who would take him under her wing as his drag mother. She features in some of his earliest memories at the UC. 
+Still, he was good enough as a newcomer to win one of the UC’s amateur nights, and that was when he met Kelcy Divine, the queen who would take him under her wing as his drag mother. She features in some of his earliest memories at the UC. 
 
 “We would be here late at night after a show, walking around downtown, very much – at that point, stubble’s coming out, you’re very much a man at that point, in high heels, walking down the street,” he recalls. “And cars are passing by, honking. People thinking you’re a prostitute, you turn around and they’re like— oh, oh, no, you’re not.”
 
