@@ -1,29 +1,29 @@
 #Religion and the Paranormal
 	
 	
-In a world where rationalism dominates the scientific discussion, the paranormal is relegated to the fringe. After all, how can something that can’t be observed with repeatable testing and study be real?
+In a world where rationalism dominates scientific discussion, the paranormal is relegated to the fringe. After all, how can something that can’t be observed with repeatable testing and study be real?
 
-And yet, there are still numerous sightings of ghosts, and people who communicate with the dead are television stars. According the Andrew Nichols, president of the American Institute of Parapsychology, about 75 percent of the American public has reported having some kind of extra-sensory experience.
+Yet there are still numerous sightings of ghosts, and people who communicate with the dead are television stars. According the Andrew Nichols, president of the American Institute of Parapsychology, about 75 percent of the American public has reported having some kind of extra-sensory experience.
 
-“It’s as Carl Yung described, every human being has the innate drive toward the transcendent, that there is something beyond the world we see,” he said. “That is a universal human trait.”
+“It’s as Carl Yung described," he said. "Every human being has the innate drive toward the transcendent, that there is something beyond the world we see. That is a universal human trait.”
 
-That drive toward the transcendent would explain another significant part of the human experience: religion. Every religion has some elements of a world or forces beyond our senses.
+The drive toward the transcendent would explain another significant part of the human experience: religion. Every religion has some elements of a world or forces beyond the senses.
 
 “The paranormal is the foundation of religion,” Nichols said. “Without that, you’re just left with a philosophy.”
 
-But is the religious world still interested with the modern-day paranormal? Nichols said he has seen many mediums who are religious and he has many religious friends who believe in his work, which includes hauntings and ESP. But there are also many agnostic psychics and large segments of the religious community who see the work of psychics and paranormal researchers as fakes.
+But is the religious world still interested with the modern-day paranormal? Nichols said he has seen many mediums who are religious and has many religious friends who believe in his work, which includes hauntings and ESP. But there are also many agnostic psychics and large segments of the religious community who see the work of psychics and paranormal researchers as fake.
 
 “Every type of paranormal occurrence that is mentioned in the bible is still experienced today,” he said. “A lot of religionists today will embrace the idea that these miraculous things took place thousands of years ago, but they’ll reject the notion that they are still occurring today, for some reason.” 
 
 “It’s like the old saying, ‘If you talk to God, you’re pious. If God talks back, you’re schizophrenic.’”
 
-By virtue of their religious foundation, ardent followers of any religion are bound to believe in at least some kinds of paranormal events. But there are a vast number of different extrasensory claims out there currently, from haunted houses to speaking to deceased loved ones to visions of the future. 
+By virtue of their religious foundation, ardent followers of any religion are bound to believe in at least some kind of paranormal event. But there are a vast number of different extrasensory claims out there currently, from haunted houses to speaking with deceased loved ones to visions of the future.
 
-Here are what some local religious leaders and scholars say about what each religion believes about the paranormal in the world today. 
+Here are what some local religious leaders and scholars say about what each religion believes about the paranormal in the world today.
 
-###Roman Catholic Christianity
+###Roman Catholicism
 
-Catholicism is the largest single denomination of Christianity -- the world’s most popular religion -- in America. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
+Catholicism is the largest single denomination of Christianity in America, the world’s most popular religion. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
 
 According to Catholic doctrine, when a person dies, that person’s soul is judged on the merit of his or her life and actions. If the soul was good, it gets an eternal reward in heaven; if it still needs some cleansing, it will be purified in purgatory; and if it was wicked, it will be sent to eternal punishment in hell.
 
@@ -31,7 +31,7 @@ Fr. Anthony Eseke, the parochial vicar at St. Augustine Church and Catholic Stud
 
 “The church believes that, yes, there is a Holy Spirit, but it is also possible there are some other spirits who are out to harm human beings,” he said.
 
-This notion is what leads to the Catholic belief in possession and the practice of exorcism, which Eseke said is only for specially designated members of the Church’s clergy to perform. However, he said, if such a case arises, the Church first conducts a lengthy and scientific investigation to rule out any natural causes. 
+This notion is what leads to the Catholic belief in possession and the practice of exorcism, which Eseke said is only for specially designated members of the Church’s clergy to perform. He said if such a case arises, however, the Church first conducts a lengthy and scientific investigation to rule out any natural causes.
 
 While spirits and possessions are part of Catholic beliefs, Eseke said the notion of communicating with dead people is not encouraged among Catholics. He said followers need to be wary of anything that might lead them away from worship and towards temptation or the devil, and such practices have been grounds for excommunication in the past. 
 
@@ -53,11 +53,11 @@ When asked if the souls could come back to Earth, Theodosion said the notion has
 
 “There is nothing that has ever given us that impression,” he said, “other than the resurrection of Christ.”
 
-Theodosion admitted the truth of demons and miracles, citing specific examples of miracles from recent years, including wooden icons that cried tears or had images move. He said the Church has a certain hierarchs who have the authority to decide which occurrences fabricated and which are divine.
+Theodosion admitted the truth of demons and miracles, citing specific examples of miracles from recent years, including wooden icons that cried tears or had images move. He said the Church has certain hierarchs who have the authority to decide which occurrences are fabricated and which are divine.
 
 “It can’t be anything human,” he said, “because none of us have that kind of power.”
 
-Anything that humans do with the paranormal must come through the Holy Spirit and God, according to Theodosion, ruling out the psychics that make predictions for personal benefit or individual future-telling. Everything not through God is either false or a mistake. 
+Anything that humans do with the paranormal must come through the Holy Spirit and God, according to Theodosion, ruling out psychics that make predictions for personal benefit or individual future-telling. Everything not through God is either false or a mistake, he said.
 
 “A lot of the things we know today were not understood in the day of Christ,” he said. “As human beings, we have a very difficult time expressing and understanding them, because there are things that are not understandable by the human mind.”
 
@@ -79,7 +79,7 @@ Leathem said that a lot of what is interpreted as paranormal experiences might j
 
 ###Judaism
 
-Judaism originated in the Middle East during the Bronze Age, and it is believed to be one of the oldest monotheistic religions in the world.  The Jewish texts and traditions laid the foundation for both Christianity and Islam.
+Judaism originated in the Middle East during the Bronze Age and is believed to be one of the oldest monotheistic religions in the world.  The Jewish texts and traditions laid the foundation for both Christianity and Islam.
 
 Rabbi Aaron Notik, program director for Lubavitch Jewish Center, said the Jewish faith believes man is part body and part soul, and that upon death the soul departs to the afterlife. According to Notik, bad souls will go through a cleansing process, so all will eventually reach heaven. 
 
@@ -87,13 +87,13 @@ Notik also said that the soul can exist in multiple places at once: during life,
 
 “A certain portion of the soul does remain near the grave,” he said.
 
- He said it is possible to living humans to perceive deceased souls near their graves, but the soul wouldn’t exist in other places. He also said that while reincarnation is supported by the Jewish faith in certain cases, mostly if a soul has not fulfilled its earthly purpose, the soul wouldn’t ever come back and not assume a body.
+ He said it is possible to living humans to perceive deceased souls near their graves, but the soul wouldn’t exist in other places. He also said that while reincarnation is supported by the Jewish faith in certain cases, most often if a soul has not fulfilled its earthly purpose, the soul wouldn’t ever come back and not assume a body.
 
 “Spirituality does exist,” he said. “Spirits, haunting…that’s not something that’s part of the Jewish faith.”
 
 Notik also said that there were a number of prohibitions against communicating with the dead. According to the Mishneh Torah, these practices mostly involved using dead people’s bones to communicate with them, but such practices were grounds for stoning.
 
-While the Jewish faith has a strong belief in prophecy, the Mishneh Torah outlines rules for determining a true prophet from a false prophet. In summary, if everything a prophet says comes true, then that person will be deemed a true prophet, save for a few exceptions.
+While the Jewish faith has a strong belief in prophecy, the Mishneh Torah outlines rules for determining a true prophet from a false prophet. Primarily, if everything a prophet says comes true, then that person will be deemed a true prophet, save for a few exceptions.
 
 Notik also noted that it is hard to discuss souls, because they exist beyond the confines of time and space. 
 
@@ -103,7 +103,7 @@ Notik also noted that it is hard to discuss souls, because they exist beyond the
 
 Islam is a religion founded in the 7th century that believes Muhammad was the final prophet of God. It accepts many of the texts and historical events of Judaism and Christianity but continues with its own traditions and teachings.
 
-Mustafa Ahmed, a physician and member of the Islamic Community Center of Gainesville, said that the Islamic faith attempts to reconcile the worlds of the “seen” and the “unseen.” He said after death, the soul progresses to an afterlife but may still have interactions with physical reality.
+Mustafa Ahmed, a physician and member of the Islamic Community Center of Gainesville, said that the Islamic faith attempts to reconcile the worlds of the “seen” and the “unseen.” He said that after death, the soul progresses to an afterlife but may still have interactions with physical reality.
 
 “Prophetic tradition holds that those who have passed can hear the living,” he said in an email. “Other prophetic traditions suggest to us that those who have passed will speak and comment on their spiritual condition and how they may have spent their time in their previous realm of existence, but that their speech is inaudible to the living.”
 
@@ -119,11 +119,11 @@ According to Hafeez, there are instances told of humans working with the jinn, s
 
 Because of this, Hafeez said people like mediums or psychics, who communicate with the dead, would be normally frowned upon.
 
-“They would be people who are considered to be dealing with some sort of black magic or dealing with the jinn,” he said. “It’s something that shouldn’t be done; usually these people are outcasts.”
+“They would be people who are considered to be dealing with some sort of black magic or dealing with the jinn,” he said. “It’s something that shouldn’t be done. Usually these people are outcasts.”
 
-While the concept of the jinn opens up lots of paranormal possibilities in the Islamic faith, Hafeez said the Islamic faith doesn’t want humans preoccupied with them; instead, humans should focus on worshipping God and living a good life.
+While the concept of the jinn opens up lots of paranormal possibilities in the Islamic faith, Hafeez said the Islamic faith doesn’t want humans preoccupied with them. Instead, humans should focus on worshipping God and living a good life.
 
-“It’s part of the faith, you have to believe these things, but it’s something you shouldn’t worry your day-to-day activities with or get involved in,” he said.  “Because these are in another realm, and it’s not part of your duties on Earth.”
+“It’s part of the faith," he said. "You have to believe these things, but it’s something you shouldn’t worry your day-to-day activities with or get involved in because these are in another realm, and it’s not part of your duties on Earth.”
 
 ###Hinduism
 
@@ -137,7 +137,7 @@ She said there are entire villages that believe in poltergeists, many people mak
 
 “They wouldn’t think of belief in ghosts or poltergeists as unusual, or as incumbent on your faith,” she said. “At best you can say you’re agnostic, that you don’t know the reasons, but there’s enough that people tell you to make you think that it’s there.”
 
-Hinduism contains the belief in reincarnation, and that a soul will take many lives to grow and learn before it achieves release from the cycle of life and death. According to Narayanan, while the religious texts don’t specify about souls becoming ghosts, it is generally believed that the soul has “better things to do” than remain on earth without a body, instead opting to learn more through newer bodies and lives.
+Hinduism contains the belief in reincarnation and that a soul will take many lives to grow and learn before it achieves release from the cycle of life and death. According to Narayanan, while the religious texts don’t specify about souls becoming ghosts, it is generally believed that the soul has “better things to do” than remain on earth without a body instead of opting to learn more through new bodies and lives.
 
 Reincarnation does give some latitude for paranormal experiences. The time between lives is unspecified, and it is possible for dead souls to become “lost” between lives as they try to find a new home.
 
@@ -153,9 +153,9 @@ On the other side, being possessed by a god is a good thing, while there are oth
 
 ### Rationalism
 
-Rationalists are what parapsychologists call the people who only trust hard science. If their five senses can’t perceive something, it doesn’t exist to them. In this day and age, concepts like spirits and psychics aren’t discussed in school curricula. Scientists like Nichols are pushed to the fringe, often not respected by their academic peers. The familiar refrain is: if this stuff really exists, why don’t we have any proof? How come all we have are hearsay ghost stories and “psychics” who say such vague things that they could mean anything? 
+Rationalists are what parapsychologists call the people who only trust hard science. They only believe what their five senses can perceive. In this day and age, concepts like spirits and psychics aren’t discussed in school curricula. Scientists like Nichols are pushed to the fringe, often not respected by their academic peers. The familiar refrain is: if this stuff really exists, why don’t we have any proof? How come all we have are hearsay ghost stories and “psychics” who say such vague things that they could mean anything? 
 
-However, while the mainstream conception of the paranormal may be that it is “weird” or “freaky,” many paranormal concepts are not foreign to the average person. According to the General Social Survey, about 80 percent of American homes are religious, and every religion contains some elements of the paranormal. And in other cultures, religion and science are seen as working hand-in-hand; learning about the world doesn’t preclude the existence of spirits. And the counter argument to the rationalist refrain is: if this stuff doesn’t exist, why are there so many stories about it? Why are so many people in the world convinced that there are things that transcend the natural world?
+However, while the mainstream conception of the paranormal may be that it is “weird” or “freaky,” many paranormal concepts are not foreign to the average person. According to the General Social Survey, about 80 percent of American homes are religious, and every religion contains some elements of the paranormal. In other cultures, religion and science are seen as working hand-in-hand, and learning about the world doesn’t preclude the existence of spirits. The counter argument to the rationalist refrain is: if this stuff doesn’t exist, why are there so many stories about it? Why are so many people in the world convinced that there are things that transcend the natural world?
 
 
 
