@@ -34,7 +34,7 @@ Another Mischievous Madam whose stage name is Lillie de Luna also found peace wi
 
 “Having a baby changes the way you feel about your body,” she said. “It has affected me a lot with my body image issues because this troupe especially has a pretty wide variety of ladies.”
 
-Burlesque has a reputation for embracing many body shapes, sizes and ages, like curvy Texas performer Ginger Snaps or the legendary redhead Tempest Storm, who is now 86 and was still performing in the 21st century. Being a great performer is a matter of charisma, not physical perfection.
+Burlesque has a reputation for embracing many body shapes, sizes and ages, like curvacious sensation Miss Dirty Martini or the legendary redhead Tempest Storm, who is now 86 and was still performing in the 21st century. Being a great performer is a matter of charisma, not physical perfection.
 
 Other troupe members would describe themselves as shy by nature but come out of their shell when they’re performing. O’Hare, for instance, has no problem dancing in minimal clothing in front of a crowd of people but would never sing karaoke alone.
 
