@@ -1,17 +1,17 @@
 ##MEN'S BASKETBALL 
 
-When the University of Florida Gators took on the Kentucky Wildcats, at Rupp Arena, on February 15, ESPN displayed before-and-after pictures of UF seniors Will Yeguete, Casey Prather and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think Michelangelo sculpted them himself if you were looking at a picture in an anatomy textbook.  Those three men who 
-were once lanky and looked like your average teenager about to play basketball at the neighborhood court are now some of the strongest athletes in the nation for college men’s basketball. All are a product of Preston Greene’s training programs. 
+When the University of Florida Gators took on the University of Kentucky Wildcats at Rupp Arena on February 15, ESPN displayed before-and-after pictures of UF seniors Will Yeguete, Casey Prather and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think Michelangelo sculpted them himself. Those three men who 
+were once lanky and looked like your average teenager about to play basketball at the neighborhood court are now some of the strongest athletes in college men’s basketball. All are a product of Preston Greene’s training programs. 
 
-Greene has been the team’s strength and conditioning coordinator for three seasons. Every day, year round, he’s with the team making them stronger, more flexible and faster than the day they were recruited. He’s the guy on the court before the game stretching the players out who all the girls in the stands wish they could be. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is, literally, the most hands on. 
+Greene has been the team’s strength and conditioning coordinator for three seasons. Every day throughout the year, he’s with the team making them stronger, faster and more flexible than the day they were recruited. He’s the guy on the court before the game stretching the players out who all the girls in the stands wish they could be. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is literally the most hands on. 
 
-Yeguete said Greene’s impact on the team is huge and you can see it during games — not just by watching how the Gators move on the court. 
+Yeguete said you can see Greene’s impact during games — not just by watching how the Gators move on the court. 
 
-“We play against teams that can’t keep up with us, because we are better conditioned than they are," Yeguete said. "I think that’s a credit to Preston.” 
+“We play against teams that can’t keep up with us because we are better conditioned than they are," Yeguete said. "I think that’s a credit to Preston.” 
 
-Preston's effect on the team begins on day one: when incoming freshmen enroll for Summer B. Throughout voluntary off-season training sessions, Greene begins to evaluate each player and creates a personal program for each player to fix what he calls their “weak link.” 
+Preston's effect on the team begins on Day 1: when incoming freshmen enroll for the Summer B semester at the end of June. Throughout voluntary off-season training sessions, Greene begins to evaluate each player and creates a personal program for him to fix what he calls their “weak link.” 
 
-The Clemson alum compares the process to that of getting your car aligned. He compares it to how you need to let go of your steering wheel to see what direction your car goes in. Basketball players are the same in the way they move on the court and in the weight room. 
+The Clemson alum compares the process to that of getting your car aligned. Like when you let go of your steering wheel to see what direction your car goes in, basketball players are the same when they move on the court and in the weight room. 
 
 "Guys may be quicker to their right than they are to their left," Greene explained. "They may be tighter in one muscle than another one that works synergistically with the other. They may be stronger in one part of the body versus another part of the body. Those ratios change throughout the season just because of the way they move, the way they play, injuries." 
 
