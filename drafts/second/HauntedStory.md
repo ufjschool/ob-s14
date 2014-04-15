@@ -37,7 +37,7 @@ He ignored it until he saw his doorknob turn, slowly.
 
 ####A Little History
 
-Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, an eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967, but was eventually named after professor Robert Calder Beaty (http://www.uff.ufl.edu/Facilities/Facilities.asp?ID=104). Beaty was a WWI veteran and former University of Florida Dean of Student Personnel who retired in 1960.
+Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, an eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967 but was eventually named after professor Robert Calder Beaty (http://www.uff.ufl.edu/Facilities/Facilities.asp?ID=104). Beaty was a World War I veteran and former University of Florida Dean of Student Personnel who retired in 1960.
 
 The UF Housing history book (http://www.housing.ufl.edu/media/about/aboutus.historybookpdf.pdf) calls Beaty Towers an “architectural anomaly” on campus, because high-rise residential facilities were nonexistent at UF and scarce throughout the southeast in general. Each of the 200 apartments in Beaty typically house four students, with two bedrooms, one bathroom and a common living area and kitchenette. 
 
@@ -45,15 +45,20 @@ The dorm opened in the midst of social change on college campuses, the book expl
 
 Supposedly around that time, a girl jumped from her Beaty dormitory to her death.
 
+As a freshman, my then-boyfriend lived in Beaty East, and I was practically the fifth roommate. I'd heard about the suicide rumor, but I didn't think much about it. I never saw anything or heard noises that couldn't be explained away, even the night after we watched "Paranormal Activity III." 
+
+Looking back two years ago, I try to remember if my ex and I even talked about the rumor. We probably mentioned it at some point, but it doesn't stand out in my memory. Though if I had heard Romero's story, I might have thought twice about camping out there. 
+
+
 ####A suicide legend
 
-Kids have died on the UF campus. Death is an inevitability among 50,000 students. Some of them have died in their dorm rooms, some in Beaty Towers. A simple Google search of “UF student died Beaty Towers” turns up old Gainesville Sun articles with details. One of the first to come up is a November 1987 write-up of the alcohol poisoning death of 18-year-old freshman Robert Stevenson, who was found in his dorm room at Beaty Towers East (http://news.google.com/newspapers?nid=1320&dat=19871126&id=Hj9WAAAAIBAJ&sjid=D-oDAAAAIBAJ&pg=3704,3048058).
+People have died on the UF campus. Death is an inevitability among 50,000 students. Some of them have died in their dorm rooms, some in Beaty Towers. A simple Google search of “UF student died Beaty Towers” turns up old Gainesville Sun articles with details. One of the first to come up is a November 1987 write-up of the alcohol poisoning death of 18-year-old freshman Robert Stevenson, who was found in his dorm room at Beaty Towers East (http://news.google.com/newspapers?nid=1320&dat=19871126&id=Hj9WAAAAIBAJ&sjid=D-oDAAAAIBAJ&pg=3704,3048058).
 
-Deaths like his are the ones few remember; the ones nobody talks about. For whatever reason, it is a death that nobody can prove actually happened that UF students hear about over and over.
+Deaths like his are the ones few remember; the ones few people seem to talk about. For whatever reason, it is a death that nobody can prove actually happened that UF students hear about over and over.
 
 From what I gather, it’s a Gator household story that a female student committed suicide by jumping from her Beaty dormitory. Which tower was it? Which room did she jump from? What year did it happen? Nobody seems to be able to answer these questions, though they keep coming up. I even remember hearing the girl was pregnant when she jumped.
 
-According to the people who should know, however, there is no record of a girl killing herself by jumping from Beaty. I contacted the one man who might know if anyone does: UF historian and curator Carl Van Ness.
+According to the people who should know, however, there is no record of a girl killing herself by jumping from Beaty. I contacted the one man who might know if anyone does: Carl Van Ness, curator for manuscripts and archives at the UF libraries.
 
 ####An “American Girl”?
 
@@ -88,7 +93,6 @@ I asked current Beaty resident Wallis O'Hagan, 20, what she thought of the whole
 
 I realized I'd just helped the legend live on.
 
-**last section will contain more testimony/opinions/thoughts from students**
 
 #James Thieke 
 
