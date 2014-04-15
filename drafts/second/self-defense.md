@@ -50,7 +50,7 @@ Lamb loved the class so much that she convinced the other women in her departmen
 
 The couple became certified as instructors in 2007, and Jeffrey was the program coordinator for UFPD from 2007 to 2010. With Tina currently serving as UFPD program coordinator and state director, Jeffrey now contributes by playing the role of the aggressor.
 
-Since becoming state director in July 2012, Tina Lamb has focused on supporting newer R.A.D. programs elsewhere in north central Florida, helping them get the equipment, instructional help and funds they need to expand the in their area. This tight-knit group of instructors is from Chiefland, Tampa and the Suwannee River Valley area.
+Since becoming state director in July 2012, Tina Lamb has focused on supporting newer R.A.D. programs elsewhere in north central Florida, helping them get the equipment, instructional help and funds they need to expand in their areas. This tight-knit group of instructors is from Chiefland, Tampa and the Suwannee River Valley area.
 
 For example, professional child advocate Morgan Bright, 23, has been a R.A.D. instructor for a little more than a year and has run the Ocala program almost entirely with borrowed equipment and help from instructors in neighboring cities. The Ocala Police Department provided Bright with a room and training mat, but the department decided in February to begin funding the program with Bright as coordinator.
 
