@@ -1,10 +1,10 @@
 #The Mischievous Madams Bring Sexy Back to Gainesville
 
-Warm, dreamlike red light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a polka dot dress, her bright eyes ready to capture the imaginations of the crowd. Before long, she’ll have them in the palm of her hand.
+Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a button-down red dress, her bright eyes ready to capture the imaginations of the crowd. Before long, she’ll have them in the palm of her hand.
 
-A burlesque performer whose stage name is Stella O’Hare removes her intricate costume slowly and deliberately, piece by piece. First her 50s-era hat and gloves, then her broad-skirted dress, revealing a bright red corset. She takes her cues from the audience, who cheer and beckon at her insistence; she won’t take it off unless they tell her to.
+A burlesque performer whose stage name is Stella O’Hare removes her intricate costume slowly and deliberately, piece by piece. First her delicate black gloves, then her broad-skirted dress, revealing a bright red corset. She takes her cues from the audience, who cheer and beckon at her insistence; she won’t take it off unless they tell her to.
 
-Down to lacey black lingerie, she conceals her body with large white feathered fans. A carefully choreographed dance teases the audience with glimpses of a thigh or waist. She connects with her audience, looking them in the eyes and hanging her every move on their cheers until the crowd is frenzied.
+Down to lacey red and black lingerie, she conceals her body with large white feathered fans. A carefully choreographed dance teases the audience with glimpses of a thigh or waist. She connects with her audience, looking them in the eyes and hanging her every move on their cheers until the crowd is frenzied.
 
 The song crescendos as the moment everyone’s been waiting for arrives. She shows (almost) all in a pair of heart-shaped pasties and a sparkling thong. For O’Hare, however, the end result is the least important part of the performance.
 
