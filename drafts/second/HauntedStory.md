@@ -16,7 +16,7 @@ Keep reading, if you dare.
 
 ####"The lights were all off" 
 
-It happened in Beaty Towers East, on the third floor. Ben D. (he didn't want his last name used) was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, Ben's friend. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
+It happened in Beaty Towers East, on the third floor. Ben D. (he didn't want his last name used or to tell the story first hand) was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, Ben's friend, to whom he told the story the next day. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
 
 “He ignored it at first and tried going back to sleep,” Romero said, her voice filled with the thrill of telling a scary story.
 
