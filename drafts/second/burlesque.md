@@ -2,7 +2,7 @@
 
 Warm, dreamlike red light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a polka dot dress, her bright eyes ready to capture the imaginations of the crowd. Before long, she’ll have them in the palm of her hand.
 
-The burlesque performer whose stage name is Stella O’Hare removes her intricate costume slowly and deliberately, piece by piece. First her 50s-era hat and gloves, then her broad-skirted dress, revealing a bright red corset. She takes her cues from the audience, who cheer and beckon at her insistence; she won’t take it off unless they tell her to.
+A burlesque performer whose stage name is Stella O’Hare removes her intricate costume slowly and deliberately, piece by piece. First her 50s-era hat and gloves, then her broad-skirted dress, revealing a bright red corset. She takes her cues from the audience, who cheer and beckon at her insistence; she won’t take it off unless they tell her to.
 
 Down to lacey black lingerie, she conceals her body with large white feathered fans. A carefully choreographed dance teases the audience with glimpses of a thigh or waist. She connects with her audience, looking them in the eyes and hanging her every move on their cheers until the crowd is frenzied.
 
@@ -16,9 +16,9 @@ O’Hare is one of seven women in the Mischievous Madams burlesque troupe, forme
 
 Derived from an Italian word meaning joke or mockery, burlesque appeared in Victorian Europe as parodies of well-known plays and operas performed by scantily-clad women. American burlesque became popular in the early 20th century, combining elements of Victorian burlesque, minstrel shows and musical halls, eventually evolving to focus mainly on female strip tease. After experiencing a decline in popularity by the 1970s, a new generation inspired by the glamour and spectacle of the past have revived it in the last 20 years as a liberating form of self-expression for a mainly female audience.
 
-“None of us are doing this for anyone else,” said one Mischievous Madam who goes by Della Darling. "I feel like I can do anything. You’re totally vulnerable onstage, but you’re also controlling what happens”
+“None of us are doing this for anyone else,” said one Mischievous Madam, who goes by Della Darling. "I feel like I can do anything. You’re totally vulnerable onstage, but you’re also controlling what happens”
 
-The concept of the act is at the discetion of the performer and can be anything she wants, from dance-focused to scary or funny. The only blond in the troop, Jenny Castle is one Mischievous Madam who prefers acts that have comedic elements or shock value, like when she shot sparks off her metal panties during March's rock-themed show or danced in character as the grandfather of one of the other performers in the troop's one-year-anniversary show on April 12.
+The concept of the act is at the discretion of the performer and can be anything she wants, from dance-focused to scary or funny. The only blond in the troupe, Jenny Castle is another Mischievous Madam who prefers acts that have comedic elements or shock value, like when she shot sparks off her metal panties during March's rock-themed show or danced in character as the grandfather of one of the other performers in the troupe's one-year-anniversary show on April 12.
 
 "I used to always think I needed to be so good, but now I realize I really enjoy being funny. I’ve gotten into clowning and comedy, and I realized I enjoy that more and have a talent for that," Castle said. "We all do something different."
 
@@ -50,8 +50,8 @@ What the audience may not realize is the most important part of the strip tease 
 
 They repurpose old shoes and lingerie and turn household items into props by “bedazzling” them. Classic burlesque performances are full of sparkle, which makes it no wonder that Swarovski named burlesque icon Dita Von Teese its worldwide brand ambassador in 2007. Costumes can get expensive quickly if a performer doesn’t use at least some home-made pieces.
 
-“The quote in the industry is ‘the difference between strip club stripping and burlesque is in strip club stripping you’re making $300 in a $30 outfit, while in burlesque you’re making $30 in a $300 outfit,'” Flower said.
+“The quote in the industry is ‘the difference between strip club stripping and burlesque is in strip club stripping you’re making $300 in a $30 outfit while in burlesque you’re making $30 in a $300 outfit,'” Flower said.
 
-But like conceptualizing the act, creating the costumes is a labor of love for the Madams. While they may get different things out of performing, each Mischievous Madam has had her life changed for the better by discovering burlesque. Bravely completing a strip tease for an audience of friends and strangers has given each of them a boost of confidence and a chance to connect with themselves as well as the audience.
+Like conceptualizing the act, however, creating the costumes is a labor of love for the Madams. While they may get different things out of performing, each Mischievous Madam has had her life changed for the better by discovering burlesque. Bravely completing a strip tease for an audience of friends and strangers has given each of them a boost of confidence and a chance to connect with themselves as well as the audience.
 
-"(The acts) are all small parts of me I don’t express outwardly," said Mischievous Madam Sally Sucre. "I am kind of shy, it’s not typical for me to just kind of take off my clothes in front of people I don’t know. The first time I did it, it was just so empowering and enthralling that I didn’t even care how many people were there or how many people weren’t."
+"(The acts) are all small parts of me I don’t express outwardly," said Mischievous Madam Sally Sucre. "I am kind of shy, so it’s not typical for me to just kind of take off my clothes in front of people I don’t know. The first time I did it, it was just so empowering and enthralling that I didn’t even care how many people were there or how many people weren’t."
