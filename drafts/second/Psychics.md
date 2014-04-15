@@ -14,15 +14,33 @@ Green assists in balancing the energy field in one’s body, also commonly known
 
 Green received her RN at Seminole State College in 1983. She became certified in Healing Touch in 2010 while working on her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
 
-From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old. She was hypersensitive to sounds and light. She was able to see and hear spirits, also known as clairvoyance and clairaudience. By the age of 12, Green said she started to see energy around things. 
+From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old when she was first able to sensitize noise. By the time she was 3 to 4 years old, she started going to birthday parties and couldn’t stand the children screaming and yelling while playing. It did not make it any easier for her when was highly emotional and sensitize to the children around her. She was very absorbent of their feelings. 
+
+She was also hypersensitive to sounds and light. Flash photography felt like it was the death of her, so she had to wear sunglasses. Her eye doctor told her it was not likely, because she had dark eyes that provide more protection from light. 
+
+When she was 10, her father past away. It was a turning point in her abilities to some degree, but she regained strength and got stronger when she was 12. By the age of 12, Green she started to see energy around things, an ability known as clairvoyance. She was also able to hear the energies around her, known as clairaudience. 
 
 This ability was something she understood later on in life as functioning on a higher frequency level.  Today they refer to it more as HSP, higher sensory perception. 
 
 “It is like taking your basic senses to the second floor,” Green said. 
 
-Green practices the Jewish faith and believes in one God. 
+These abilities never shook her faith. Green practices the Jewish faith and believes in one God. In Judaism, it is accepted. It has the Kabbalah, a book of Jewish mysticism, as well as the Zohar. 
 
-While using a crystal pendulum to assess the person’s energy field, Green works with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. 
+She spoke with her rabbi a couple of years ago, and he told her one-on-one that he thought she had a gift from God and was so glad she was using it to help people. He prided her courage to go public with her work. 
+
+A lot of people in her family were very open-minded and knew each of them had a sixth sense in one way or another, which made it easier for her to open up about her paranormal experiences.
+
+Green does not pay much mind to the skeptics. She doesn’t just believe in what she does, she knows of what is real and validated. Skeptics give her an opportunity to show them something they might have never been open to.
+
+“Everyone is entitled to he or her own opinion,” Green said. “I don’t want to necessarily want to change their belief—just their experience.”
+
+Susan Provda, a client of Green, was not skeptical before her first visit. She was just someone in dire pain after two back surgeries looking for Green’s help. After hearing about Green from a friend, Provda decided to see her. She went to the Green’s Apopka Wellness Center in Apopka, Fla., to be comforted by light talk about her medical history and progressive relief after visiting three more times for back therapy. 
+
+Provda said the experience was very professional. She lay down as Green used a crystal pendulum to read her energy field and work her hands in her back, where she sensed blockage. She validated moments in her life that no one would know outside of the family. Provda has felt much better, partly because she came in with an open mind and heart, making it easier for Green to communicate with her.
+
+“It’s healing, therapeutic; she listens really well,” Provda said.
+
+While using a crystal pendulum to assess the person’s energy field, Green works with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. It is the oldest form of medicine, she said.
 
 “It is the ultimate cellphone connection,” Green said.
 
@@ -34,15 +52,18 @@ She is now the author of "Getting to Know You: Guided Pearls of Wisdom for a Mor
 
 “The Spirit moved me,” Green said.
 
-About 14 years ago, she channeled messages from a spirit that she thought were messages, which turned out to be the book. The book was written in four months. In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind clutter of past issues that affect our physical, mental and spiritual bodies. 
+About 14 years ago, she channeled messages from a spirit that she thought were messages, which turned out to be the book. The book was written in four months. In the book, she mentioned 18 concepts of awareness that the guides and angels made her aware of to work through systematically to help re-establish healthier thought patterns in all aspects of life. They also teach how to learn to clear the mind cluttered by past issues that affect our physical, mental and spiritual body.
 
 A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
 
-Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. 
+The most powerful part of our bodies is our higher consciousness. It is soul-driven and will not steer us wrong if we learn to tune into it. The energy field compromises everything: the mind, body and soul. It takes care of our physical and non-physical, she said. A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
 
-On her down time, Green works at the Apopka Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband and three children. She anticipates writing another book in a couple of years. 
+“In general we are all caretakers of others, but we often neglect ourselves as life gets busy,” she stated in a press release on her book. 
+
+Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. On her down time, Green works at the Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband, three children and her 85-year-old mother. She anticipates writing another book in a couple of years. 
 
 “We are amazing beings with all the answers within ourselves to lead a healthy and productive life,” Green said. 
+ 
 
 
 ##James
