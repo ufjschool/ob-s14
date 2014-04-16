@@ -107,11 +107,11 @@ A campus police officer quit his job after once, during an inspection, he found 
 
 “I’ve never experienced any of it,” Lansford says. “I keep an open mind, but until I experience it, I’ll believe it when I see it.”
 ***
-I volunteered to visit Norman Hall for my magazine team. While some people might shy away from haunted places, we are curious journalists, so naturally, we purposely go and hope to find some ghosts. My mission is to see if I experience similar phenomena as the people who report paranormal experiences. 
+I volunteered to visit Norman Hall for my magazine team. While some people might shy away from haunted places, we journalists are curious people, so naturally, we purposely go and hope to find some ghosts. My mission is to see if I experience similar phenomena as the people who report paranormal experiences. 
 
 I arrive at Norman around 6:30 p.m. According to Tom Dana, associate dean of the College of Education, UFPD arrives around 10 p.m. to lock the doors. I plan to leave around 9:30 p.m., as to avoid any unnecessary run-ins with police. It’s already getting dark as I enter the building. 
 
-I walk up the stairs to the third floor. The lights are all on in the hallways, but I don’t see any other people. There is a palpably creepy feeling in the staircase, but it may just be from lack of clean air; the staircase has a very mildewed smell. 
+I walk up the stairs to the third floor. The lights are all on in the hallways, but I don’t see any other people. There is a palpably creepy feeling in the staircase, but it may just be from lack of clean air; the staircase has a very mildewy smell. 
 
 As I walk over to the water fountain, its cooling compressor shuts off, leaving the room suddenly quiet. *Not exactly a good omen*, I think to myself.
 
