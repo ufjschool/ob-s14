@@ -112,3 +112,35 @@ Aspiring to represent UF at nationals his senior year, Thompson also has his eye
 With the support from coaches like Gregg Troy and Anthony Nesty and an athletic trainer like Stich, Thompson has little doubt in his future swimming career. 
 
 “We as humans are capable of way more than we think we are – that’s something that was kind of learned out of the pool,” he said.  “You are always capable of working harder and pushing yourself beyond the limits that you think you have set for yourself because in reality there are no limits.”
+
+## Gymnastics 
+
+When senior Aliana Johnson enters a room, her 5’1’’ stature and winning smile don’t exactly scream intense athlete. Watch her run toward a vault at full speed with nothing but concentration on her face, and it’s no surprise why she is a national champion. 
+	Johnson, who is an All-American first-team for all-around in gymnastics, has had a stellar senior year and a real shot at claiming back-to-back national championships in her sport. The Texas native set an all-time Gator record score of 39. 825 in all-around earlier this year.  It’s clear to see that Johnson’s natural athleticism and talent have helped her have such a fantastic senior year, but there is one other factor that Johnson says helps her perform at her best, nutrition. 
+	Johnson credits her mother for helping her eat pretty healthy from a young age and said that it helped her not need as much guidance on how to eat when she came to the University of Florida as a freshman. 
+	Johnson admitted that suffering from a lower back stress fracture in her junior year was a real eye-opener on how important nutrition truly is. 
+	“I learned how nutrition is very helpful,” Johnson recalled, “how you have to give your body the right stuff. I wasn’t practicing at all so I needed to fuel my body properly. I was doing the bike and SwimEx to keep in shape as much I could so I could come back strong and do what I needed to do for the team.”
+	Johnson added more protein to her diet after being injured to help her get back into competition. After being out for eight meets, Johnson returned to competition in the NCAA Regionals, where she scored her own personal best scores of the season.  
+	Johnson has a customary meal on days when she has a meet at home that helps keep her fueled throughout the meet. 
+	“Whenever we’re home I always go get a Publix wrap with ham, cheese, mustard and all the vegetables on it like around 12:30 or something,” Johnson said, “and then right before we go out for warm-ups, which is around 4, I’ll have like a banana and almond butter.”
+	She divulged that they have little snacks during the meet to keep them energized. Besides food Johnson credits her teammates for helping her keep her energy levels up. 
+	“I’m very energetic during practice, and I feel like being energetic helps others be energetic and we kind of feed off one another and that helps having other people in the gym that are just excited, making jokes and being funny,” Johnson said. 
+	One of the other most important things that helps keep Johnson energized is sleep, something that Sarah Snyder, a sports nutritionist at UF, agrees with. 
+	Kelsee Gomes, the sports nutritionist assigned to gymnastics at UF, said that when it comes to gymnasts her main concern is making sure that they get enough protein and carbs.
+	“They won’t condition as much in season so again it kind of becomes another strength and power sport that relays more on protein and it’s just something else that we have to look at where they are,” Gomes said. 
+	The sports nutrition program was implemented at UF in 1999, making it the second school to start a program, after Nebraska, and to this day is one of the only programs that focuses on all sports, Snyder said.
+	Athletes, like Johnson, have learned to take full advantage of the nutrition program to help them throughout the season. Johnson usually stops by the office three times a week to grab a Zone Bar after practice to help refuel. 
+	Snyder is glad that most student athletes realize the importance of a good diet. 
+“I think being at Florida the culture is set up where pretty much everyone knows they have access to this resource so that is a positive for us because we are working with everybody,” Snyder said. 
+	Gomes said that when it comes to being a nutritionist it’s more about the individual athlete than the sport. Some athletes will want basic guidelines, while others will want an exact breakdown. As a whole, most gymnasts will use fruit and low fat diary for their carb intake.  
+		Snyder and Gomes are just happy that they can be part of the puzzle that makes a good athlete.  Johnson can confirm that the feeling is mutual.
+“Kelsee is our nutritionist and I love Kelsee she’s awesome,” Johnson said. “She works with us and she does really well. She’s definitely been a good impact with different areas that I maybe didn’t know as much about, so it’s been really good to have her. “
+Whether or not Johnson stands with her team at the end of the season with another national title, Johnson admits that she has no regrets and just wants to have fun in her last year at Florida. She certainly has all the right tools for success including the nutrition to keep her energized something that Snyder can’t stress the importance off enough.
+“Everybody needs a nutritionist or dietitian to guide them through,” Snyder said. “It’s a year long season: inseason, preseason, offseason. These athletes don’t rest.”
+	 
+
+
+	
+	
+
+
