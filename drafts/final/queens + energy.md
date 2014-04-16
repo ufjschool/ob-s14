@@ -46,7 +46,7 @@ Those interests are not limited to performance. One of Chastity’s goals is to 
 
 *
 
-Erik, 22, arrives at Maude’s about ten minutes after I do. With short brown hair neatly styled, a trimmed beard and a modest button-down shirt, he blends seamlessly into the small crowd of college-age coffee-drinkers poring over books and creating a low hum of chatter. 
+Erik arrives at Maude’s about ten minutes after I do. With short brown hair neatly styled, a trimmed beard and a modest button-down shirt, he blends seamlessly into the small crowd of college-age coffee-drinkers poring over books and creating a low hum of chatter. 
 
 He’s reserved and low-key. There’s a hint of a southern drawl to his voice. But he is direct and unabashed as he tells me about his drag queen alter ego, Jazzmine Divine. 
 
