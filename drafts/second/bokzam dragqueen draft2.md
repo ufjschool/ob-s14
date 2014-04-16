@@ -1,16 +1,14 @@
 [TITLE]
 
-At 5:30 p.m. on a rainy Wednesday, the University Club is dim and deserted. Chastity Rose opens the bar at 5, so I meet her there, upstairs, where there are only two or three other people and the quiet background noise of the TV screen playing a movie I don’t recognize.  
+At 5:30 p.m. on a rainy Wednesday, the University Club is dim and deserted. Chastity Rose opens the bar at 5 p.m., so I meet her there, upstairs, where there are only two or three other people and the quiet background noise of the TV screen playing a movie I don’t recognize.  
 
 Chastity leads me into the dressing room at the back of the second floor. It’s a clean, compact space, with mirrors on every wall that reflect the harsh yellow light. At 6’1”, Chastity towers over me, but the difference disappears when we perch side-by-side on the counter. I ask her to tell me about herself: her life, her goals, her family, her job. Chastity bartends at the UC, but she also performs as a drag queen.
 
 “My first time coming here and seeing a drag show, I was like, ‘I want to do that,’” she tells me. 
 
-That was 2003. Chastity was 18 years old, a freshman at UF, and in an abusive relationship. Her eventual immersion in the drag queen community gave her a confidence boost and, soon enough, the strength to escape that situation. 
+That was in 2003. Chastity was 18 years old, a freshman at UF, and in an abusive relationship. Her eventual immersion in the drag queen community gave her a confidence boost, and soon enough, the strength to escape that situation. 
 
-“I used to be horribly insecure, very shy, very withdrawn – very much an introvert,” she says. “Now, you can’t shut me up. I have no problem talking to people or speaking my mind on any subject, whether you want to hear it or not. 
-
-“I think getting on stage and pretty much saying, ‘Fuck you, here I am,’ has really helped me change as a person.”
+“I used to be horribly insecure, very shy, very withdrawn – very much an introvert,” she says. “Now, you can’t shut me up. I have no problem talking to people or speaking my mind on any subject, whether you want to hear it or not. I think getting on stage and pretty much saying, ‘Fuck you, here I am,’ has really helped me change as a person.”
 
 Today, she doesn’t have a show to put on – not one that involves music and costumes, anyway – and she’s dressed in a t-shirt and jeans, a masculine presentation at odds with the light makeup she wears. 
 
@@ -26,7 +24,7 @@ Chastity plans on taking her costumes and dark humor to the Miss Tampa Bay Comed
 
 “My mother came to nationals,” Chastity recalls. “It was her first time at a drag show, and it was kind of a big thing for her to be there.” 
 
-Before beginning her routine that day, Chastity took the mic and gave her mom a special message: “My mother’s in the audience, it was her birthday yesterday. I just wanna say to her, I am so sorry!”
+Before beginning her routine that day, Chastity took the microphone and gave her mom a special message: “My mother’s in the audience, it was her birthday yesterday. I just wanna say to her, I am so sorry!”
 
 Later, the competition’s promoter introduced himself to Chastity’s mother. 
 
@@ -40,7 +38,7 @@ Although her family took some time to accept Chastity’s identity, Chastity has
 
 “My coworkers are like family to me,” she tells me. 
 
-Since she got into drag right around the time she started college, there was never a need to cut anyone out of her life: old friends parted ways after high school, and her new group formed around her new interests. 
+Since she got into drag right around the time she started college, there was never a need to cut anyone out of her life: old friends parted ways after high school, and her new group of friends formed around her new interests. 
 
 Those interests are not limited to performance. One of Chastity’s goals is to publish a science fiction novel. But drag will be a part of her life for the foreseeable future.
 
@@ -48,21 +46,21 @@ Those interests are not limited to performance. One of Chastity’s goals is to 
 
 *
 
-Erik arrives at Maude’s about ten minutes after I do. With short brown hair neatly styled, trimmed beard and a modest button-down shirt, he blends seamlessly into the small crowd of college-age coffee-drinkers poring over books and creating a low hum of chatter. 
+Erik, 22, arrives at Maude’s about ten minutes after I do. With short brown hair neatly styled, a trimmed beard and a modest button-down shirt, he blends seamlessly into the small crowd of college-age coffee-drinkers poring over books and creating a low hum of chatter. 
 
 He’s reserved and low-key. There’s a hint of a southern drawl to his voice. But he is direct and unabashed as he tells me about his drag queen alter ego, Jazzmine Divine. 
 
 “They’re two different people,” Erik says of himself and his stage persona. “They don’t ever bleed together. I like to be my self and she can be hers.” 
 
-Erik has been a drag queen for five years. At 17, he began experimenting with wigs and makeup, and a year later he was working at the UC. He admits that there was a steep learning curve.
+Erik has been a drag queen for five years. At 17, he began experimenting with wigs and makeup, and a year later, he was working at the UC. He admits that there was a steep learning curve.
 
 “I started out looking like an ugly stepsister,” he says frankly.
 
-Still, he was good enough as a newcomer to win one of the UC’s amateur nights, and that was when he met Kelcy Divine, the queen who would take him under her wing as his drag mother. She features in some of his earliest memories at the UC. 
+Still, he was good enough as a newcomer to win one of the UC’s amateur nights, and that was when he met Kelcy Divine, the queen who would take him under her wing as his "drag mother." She features in some of his earliest memories at the UC. 
 
 “We would be here late at night after a show, walking around downtown, very much – at that point, stubble’s coming out, you’re very much a man at that point, in high heels, walking down the street,” he recalls. “And cars are passing by, honking. People thinking you’re a prostitute, you turn around and they’re like— oh, oh, no, you’re not.”
 
-His drag mother taught him some technical basics, like makeup tips, how to do contours on his face.
+His drag mother taught him some technical basics, like makeup tips, including how to do contours on his face.
 
 “And then she was kind of like, ‘Okay, the rest is up to you to figure out,’” he says.
 
