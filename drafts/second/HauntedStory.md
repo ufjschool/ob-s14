@@ -345,7 +345,7 @@ Bolejack reminds clients that not all paranormal activity is evil or harmful, bu
 
 “When we go to people and they say 'I’ve never told anyone about this,’ it’s this gush of relief that they have and instantly, even without doing the investigation, we’ve helped them physiologically, just being able to let them open up and share what they’ve experienced,” Boothby said. “I think if people were more open about hearing about paranormal experiences without being judgmental, I think a lot more people would be helped right off the bat.” 
 
-I couldn't stop thinking about what Boothby had just said. It's like she was talking to me. Had I been judgmental before? Would I be willing to listen to someone experiencing something that I couldn't understand and struggled to even believe in? I couldn’t shake these questions. I realized that I hadn’t remained completely objective in my time with with Boothby and Bolejack but had been impacted. 
+I couldn't stop thinking about what Boothby had just said. It's like she was talking to me. Had I been judgmental before? Would I be willing to listen to someone experiencing something that I couldn't understand and struggled to even believe? I couldn’t shake these questions. I realized that I hadn’t remained completely objective in my time with with Boothby and Bolejack but had been impacted. 
 
 An hour and a half had gone by. I had more t’s to cross and i’s to dot, but I was too consumed in who Boothby and Bolejack were as people and what good they did for others with problems I had no idea about. 
 
