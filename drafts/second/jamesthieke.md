@@ -1,4 +1,5 @@
-#Religion and the Paranormal
+#Beyond Belief
+####*A look at the extrasensory world through the eyes of the religious*
 	
 	
 In a world where rationalism dominates scientific discussion, the paranormal is relegated to the fringe. After all, how can something that can’t be observed with repeatable testing and study be real?
