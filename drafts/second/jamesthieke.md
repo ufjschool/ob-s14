@@ -11,7 +11,7 @@ The drive toward the transcendent would explain another significant part of the 
 
 “The paranormal is the foundation of religion,” Nichols said. “Without that, you’re just left with a philosophy.”
 
-But is the religious world still interested with the modern-day paranormal? Nichols said he has seen many mediums who are religious and has many religious friends who believe in his work, which includes researching hauntings and ESP. But there are also many agnostic psychics and large segments of the religious community who see the work of psychics and paranormal researchers as fake.
+But is the religious world still interested with the paranormal in modern times? Nichols said he has seen many mediums who are religious and has many religious friends who believe in his work, which includes researching hauntings and extrasensory perception (ESP). But there are also many agnostic psychics and large segments of the religious community who see the work of psychics and paranormal researchers as fake.
 
 “Every type of paranormal occurrence that is mentioned in the Bible is still experienced today,” he said. “A lot of religionists today will embrace the idea that these miraculous things took place thousands of years ago, but they’ll reject the notion that they are still occurring today, for some reason.” 
 
@@ -23,7 +23,7 @@ Here are what some local religious leaders and scholars say about what each reli
 
 ###Roman Catholicism
 
-Catholicism is the largest single denomination of Christianity in America, the world’s most popular religion. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
+Catholicism is the largest single denomination of Christianity in America and the world’s most popular religion. The Catholic Church is based in Rome and has been enormously influential in the history of Europe.
 
 According to Catholic doctrine, when a person dies, that person’s soul is judged on the merit of his or her life and actions. If the soul was good, it gets an eternal reward in heaven; if it still needs some cleansing, it will be purified in purgatory; and if it was wicked, it will be sent to eternal punishment in hell.
 
@@ -49,7 +49,7 @@ Orthodoxy is a sect of Christianity that is popular in Eastern Europe and Asia. 
 
 Fr. Nikitas Theodosion, priest of St. Elizabeth’s Greek Orthodox Church, said the judgment of a human’s soul after death comes only at the Second Judgment, when Christ will come again to judge the world. How soon after death that happens, where the soul is in the meantime, and how time even works in the afterlife are less clear to the Church. 
 
-When asked if the souls could come back to Earth, Theodosion said the notion has no support from the faith.
+When asked if the souls could come back to Earth, Theodosion said the notion has no support from the Orthodox faith.
 
 “There is nothing that has ever given us that impression,” he said, “other than the resurrection of Christ.”
 
@@ -155,7 +155,7 @@ On the other side, being possessed by a god is a good thing, while there are oth
 
 Rationalists are what parapsychologists call the people who only trust hard science. They only believe what their five senses can perceive. In this day and age, concepts like spirits and psychics aren’t discussed in school curricula. Scientists like Nichols are pushed to the fringe, often not respected by their academic peers. The familiar refrain is: if this stuff really exists, why don’t we have any proof? How come all we have are hearsay ghost stories and “psychics” who say such vague things that they could mean anything? 
 
-However, while the mainstream conception of the paranormal may be that it is “weird” or “freaky,” many paranormal concepts are not foreign to the average person. According to the General Social Survey, about 80 percent of American homes are religious, and every religion contains some elements of the paranormal. In other cultures, religion and science are seen as working hand-in-hand, and learning about the world doesn’t preclude the existence of spirits. The counter argument to the rationalist refrain is: if this stuff doesn’t exist, why are there so many stories about it? Why are so many people in the world convinced that there are things that transcend the natural world?
+However, while the mainstream conception of the paranormal may be that it is “weird” or “freaky,” many paranormal concepts are not foreign to the average person. About 80 percent of American homes are religious according to the General Social Survey, and every religion contains some elements of the paranormal. In other cultures, religion and science are seen as working hand-in-hand, and learning about the world doesn’t preclude the existence of spirits. The counter argument to the rationalist refrain is: if this stuff doesn’t exist, why are there so many stories about it? Why are so many people in the world convinced that there are things that transcend the natural world?
 
 
 
@@ -166,107 +166,117 @@ Answer these questions to find out with which belief system your paranormal beli
 
 **1.You are in an old building alone at night. You begin to hear noises that don’t sound natural. What are they?**
 
-a.Evil spirits; I shouldn’t be here at night.
+a.Evil spirits; I shouldn’t be here at night. (C,O,B,I,H)
 
-b.It might be the deceased souls of people who were buried near here.
+b.It might be the deceased souls of people who were buried near here. (J,P)
 
-c.It’s probably energy from the building’s former occupants.
+c.It’s probably energy from the building’s former occupants. (P)
 
-d.It’s the wind; the sound just seems scarier when I’m alone.
+d.It’s the wind; the sound just seems scarier when I’m alone. (R)
 
 **2.You visit a graveyard to pay tribute to dead loved ones. While sitting at the grave, you feel a sort of presence, like a weight hanging over you. What do you think?**
 
-a.I can sense my loved ones; they might even be trying to communicate with me.
+a.I can sense my loved ones; they might even be trying to communicate with me. (J,I,P)
 
-b.Graveyards are scary places, so naturally I feel afraid. My nerves are getting the best of me.
+b.Graveyards are scary places, so naturally I feel afraid. My nerves are getting the best of me. (R,B,C,O)
 
-c.It might be dead people, but I don’t think it really works that way.
+c.It might be dead people, but I don’t think it really works that way. (R,C,O)
 
-d.I’ve heard of this; spirits hang around graveyards to try and influence people.
+d.I’ve heard of this; spirits hang around graveyards to try and influence people. (I,B)
 
 **3.What’s going to happen to you when you die?**
 
-a.Hopefully, I’m going to heaven.
+a.Hopefully, I’m going to heaven. (B)
 
-b.I won’t go there straightaway, but eventually I’ll get to paradise.
+b.I won’t go there straightaway, but eventually I’ll get to paradise. (C,O,J,I)
 
-c.I’m going to reincarnate into another body and get another shot at this life thing.
+c.I’m going to reincarnate into another body and get another shot at this life thing. (J,H)
 
-d.I know I’m going to hell.
+d.I know I’m going to hell. (C,O,B,J,R)
 
-e.Nothing. My death means the end of me.
+e.Nothing. My death means the end of me. (R)
 
 **4.You’re at your friend’s party, and they have hired a fortuneteller to predict people’s futures.  What is your gut reaction?**
 
-a.Cool! I can’t want to see what my future holds.
+a.Cool! I can’t want to see what my future holds. (P,H))
 
-b.People can’t predict the future, so that person is obviously a fake.
+b.People can’t predict the future, so that person is obviously a fake. (R)
 
-c.I want to see what they have to say first, and then I’ll make my judgment.
+c.I want to see what they have to say first, and then I’ll make my judgment. (I)
 
-d.I don’t know; I think some people have those powers, but I don’t think this person is one of them.
+d.I don’t know; I think some people have those powers, but I don’t think this person is one of them. (C,O,B,J)
 
 **5.The fortuneteller now walks over and says your great-grandmother has a warning for you. Do you believe it?**
 
-a.No way; my great-grandmother is dead, and dead people don’t talk.
+a.No way; my great-grandmother is dead, and dead people don’t talk. (R)
 
-b.Of course I do. Family messages shouldn’t be disregarded so quickly.
+b.Of course I do. Family messages shouldn’t be disregarded so quickly. (H,P)
 
-c.Maybe. Some people can bridge that gap of the living and the dead, and maybe this fortuneteller is one of them.
+c.Maybe. Some people can bridge that gap of the living and the dead, and maybe this fortuneteller is one of them. (C,O,B) 
 
-d.While I believe my great-grandmother may talk to me, there’s no way she would warn me through a random fortuneteller.
+d.While I believe my great-grandmother may talk to me, there’s no way she would warn me through a random fortuneteller. (J,I)
 
 **6.You have a lucid dream in which an old man gives you advice. When you wake up, what is your interpretation?**
 
-a.God was talking to me.
+a.God was talking to me. (C,O,B)
 
-b.It might have been one of my ancestors guiding me.
+b.It might have been one of my ancestors guiding me. (H,P)
 
-c.It could have been spirits influencing my dreams.
+c.It could have been spirits influencing my dreams. (C,O,B,I,H)
 
-d.I’ve had stranger dreams. Just my brain being weird as usual. 
+d.I’ve had stranger dreams. Just my brain being weird as usual.(R)  
 
 **7.You watch the movie The Exorcist, and see the little girl being possessed. What is your opinion on the realism of these scenes?**
 
-a.This could happen; I’m going to spend more time around priests.
+a.This could happen; I’m going to spend more time around priests. (C)
 
-b.I believe in demons, but I don’t think possession would make me float and make my head swivel 360 degrees. It’s more subtle than that.
+b.I believe in demons, but I don’t think possession would make me float and make my head swivel 360 degrees. It’s more subtle than that. (O,B,H)
 
-c.While I think spirits exist, they don’t influence us like that. We have our world, they have theirs.
+c.While I think spirits exist, they don’t influence us like that. We have our world, they have theirs. (I,P)
 
-d.This can’t happen, end of discussion.
+d.This can’t happen, end of discussion. (J,R)
 
 **8.Do you read your horoscopes? If so, how much stock do you put in them?**
 
-a.I don’t have time for that generic babble.
+a.I don’t have time for that generic babble. (R)
 
-b.I do, but just for fun; I don’t actually believe them.
+b.I do, but just for fun; I don’t actually believe them. (C,O,B,J,I,P)
 
-c.I put a little stock in them; like, I might make a couple of small decisions differently, but definitely not big decisions.
+c.I put a little stock in them; like, I might make a couple of small decisions differently, but definitely not big decisions. (C,O,B,J,I,P)
 
-d.I never make a significant life decision without checking my horoscope first.
+d.I never make a significant life decision without checking my horoscope first. (H)
 
 **9.Your friend tells you that they have seen a ghost at their house. Do you believe them?**
 
-a.Yeah, I guess it’s possible. Probably was a lost soul.
+a.Yeah, I guess it’s possible. Probably was a lost soul. (H,P)
 
-b.I don’t believe their story. Their house is way too new, and ghosts only inhabit old buildings.
+b.I don’t believe their story. Their house is way too new, and ghosts only inhabit old buildings. (P)
 
-c.I like my friend, but I can’t believe them. Ghosts aren’t real.
+c.I like my friend, but I can’t believe them. Ghosts aren’t real. (J,R)
 
-d.It could be a demon influencing them; they should get their house checked out.
+d.It could be a demon influencing them; they should get their house checked out. (C,O,B,I)
 
 **10.A man comes up to you and says God has spoken to him. You check out what he says with the Bible and find it could logically follow some other prophecies. Is this person a real prophet?**
 
-a.I think so. It may take a while for his predictions to come true, but they make scriptural sense.
+a.I think so. It may take a while for his predictions to come true, but they make scriptural sense. (B)
 
-b.I think I’ll wait and see how much of it turns out to be true.
+b.I think I’ll wait and see how much of it turns out to be true. (C,O,J)
 
-c.I don’t think so; all of the real prophets lived thousands of years ago.
+c.I don’t think so; all of the real prophets lived thousands of years ago. (I)
 
-d.No, he’s a fraud. He just knows the Bible well and is making stuff up.
+d.No, he’s a fraud. He just knows the Bible well and is making stuff up. (P,R)
 
-e.God doesn’t talk to people, because God isn’t real. Even if he was, he wouldn’t talk to this guy.
+e.God doesn’t talk to people, because God isn’t real. Even if he was, he wouldn’t talk to this guy. (R)
 
 
+
+Quiz Key:
+C - Catholic Christianity
+O - Orthodox Christianity
+B - Baptist Christianity
+J - Judaism
+I - Islam
+H - Hinduism
+P - Paranormal Beliefs(Unaffiliated religiously)
+R - Rationalism
 
