@@ -30,7 +30,7 @@ But the road to recovery was by no means easy.
 
 “I was very sneaky,” she said. “Before weigh-ins, I would chug water or wear the thickest sweaters I owned. But [her support team] held me accountable every step of the way.”
 
-And before she made a full-recovery, along with running personal-bests on the track her senior year, she was still labeled “the sick girl.” And labels can have a powerful effect on anyone.
+And before she made a full-recovery, along with running personal-bests on the track her senior year, she was still labeled “the sick girl.” And labels can have a powerful effect on someone.
 
 So powerful, in fact, that sports counseling and psychology has only recently become a profession of its own, and many Division I schools have yet to hire a sports counselor directly affiliated with their athletic departments. Why? The negative stigma that comes with counseling could offer one answer.
 
