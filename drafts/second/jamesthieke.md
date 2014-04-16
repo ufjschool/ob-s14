@@ -270,13 +270,21 @@ e.God doesn’t talk to people, because God isn’t real. Even if he was, he wou
 
 
 
-Quiz Key:
+**Quiz Key:**
+
 C - Catholic Christianity
+
 O - Orthodox Christianity
+
 B - Baptist Christianity
+
 J - Judaism
+
 I - Islam
+
 H - Hinduism
+
 P - Paranormal Beliefs(Unaffiliated religiously)
+
 R - Rationalism
 
