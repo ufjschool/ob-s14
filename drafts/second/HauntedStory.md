@@ -351,7 +351,7 @@ An hour and a half had gone by. I had more t’s to cross and i’s to dot, but 
 
 All else that I learned from the FPI team that night were only details that filled the holes in the story I wanted to tell. 
 
-They said they were part of a network of paranormal investigation teams in Florida and around the nation. At a moment’s notice FPI can call upon their sister team in St. Augustine for help. They receive calls weekly from people inquiring about paranormal activity. The month of October is their busiest month. They pursue private investigations within a two-hour radius of Gainesville and will refer investigations outside of this radius to other teams. 
+They said they were part of a network of paranormal investigation teams in Florida and around the nation. At a moment’s notice FPI can call upon their sister team in St. Augustine for help. They receive calls weekly from people inquiring about paranormal activity. Naturally the month of October is their busiest month. They pursue private investigations within a two-hour radius of Gainesville and will refer investigations outside of this radius to other teams. 
 
 FPI said that they don't do many private investigations in Gainesville, though. They think this is because many people don't consider Gainesville to be a haunted city, thus people aren’t quick to assume that something strange is automatically something paranormal.
 
