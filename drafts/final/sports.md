@@ -1,3 +1,7 @@
+HED: Anatomy of an Athete 
+
+DEK: Athletes + Energy 
+
 ##WOMEN'S TRACK
 
 Looking at the European snow-capped mountains for the last time, Agata Strausa knew she was going to need much more than coffee and her favorite dark chocolate to get her through this trip.
@@ -160,6 +164,68 @@ Johnson can confirm that the feeling is mutual.
 Whether or not Johnson stands with her team at the end of the season with another national title, Johnson admits that she has no regrets and just wants to have fun in her last year at Florida. She certainly has all the right tools for success including the nutrition to keep her energized something that Snyder can’t stress the importance off enough.
 
 “Everybody needs a nutritionist or dietitian to guide them through,” Snyder said. “It’s a year long season: inseason, preseason, offseason. These athletes don’t rest.”
+
+## Men's Basketball 
+
+When the Gators took on the Wildcats at Rupp Arena on February 15, ESPN displayed before-and-after pictures of UF seniors Will Yeguete, Casey Prather, Scottie Wilbekin and Patric Young. Each looked more pumped up than the next, with muscles so defined, you'd think Michelangelo sculpted them himself. Those three men who were once lanky and looked like your average teenager about to play basketball at the neighborhood court are now some of the strongest athletes in college men’s basketball. All are products of Preston Greene’s training programs.
+
+Greene has been the team’s strength and conditioning coordinator for three seasons. Every day throughout the year, he’s with the team making them stronger, faster and more flexible than the day they were recruited. He’s the guy on the court before the game stretching the players out who all the girls in the stands wish they could be. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is literally the most hands on.
+
+Yeguete said you can see Greene’s impact during games — not just by watching how the Gators move on the court.
+
+“We play against teams that can’t keep up with us because we are better conditioned than they are," Yeguete said. "I think that’s a credit to Preston.”
+
+Preston's effect on the team begins on Day 1: when incoming freshmen enroll for the Summer B semester at the end of June. Throughout voluntary off-season training sessions, Greene begins to evaluate each player and creates a personal program for him to fix what he calls their “weak link.”
+
+The Clemson alumnus compares the process to getting your car aligned. Like when you let go of your steering wheel to see what direction your car goes in,  basketball players are the same when they move on the court and in the weight room.
+
+"Guys may be quicker to their right than they are to their left," Greene explained. "They may be tighter in one muscle than another one that works synergistically with the other. They may be stronger in one part of the body versus another part of the body. Those ratios change throughout the season just because of the way they move, the way they play, injuries."
+
+After a head-to-toe breakdown on each basketball player analyzing their tightest and weakest spots, Greene prescribes certain exercises, movements, sets and reps to align each player's steering wheel.
+
+For the players, having Greene around is basically like having a personal trainer at their disposal.
+
+“I always tell them, ‘Hey! When you leave here, you’ll be paying some idiot a hundred dollars to do this, so you might as well take advantage of it now,’” Greened jested.
+
+And Yeguete laps it up.
+
+"I learned so much more about my body: stretching, how the stretching works, eating well," the 22-year-old expressed. "Preston knows a lot about the body, and he's good about sharing those things with us. He gives us a lot of advice about preparing our bodies for each season."
+
+And with each season, the training program is altered as the players grow and improve. After the season is over, Greene meets with Head Coach Billy Donovan and his staff to set goals for each player. Optimal body weights are their focus.
+
+“I want my guys to be very, very lean,” Greene stressed, “because the leaner or less body fat they have, for basketball, the quicker they are and the higher they can jump. If a guy has, in my opinion, a higher body fat than I would like, then I will determine his body weight off of that." 
+
+When Yeguete enrolled at UF in 2010, a different strength and conditioning coordinator was on staff, Matt Herring. After Greene took Herring's place, the 6-foot-7 forward suffered injury after injury: concussions, a broken foot and knee problems. Last year, he underwent several arthroscopic surgeries to remove bone chips in his right knee. Once healthy and ready to hit the court again, Yeguete had to revamp his body for his final year with the team.
+
+“My junior year, I was heavy — top heavy," he said.
+
+So Greene set a goal for Yeguete: lose weight.
+
+“I was about 240 at the start of the season," Yeguete noted. "Now I’m at 223. My goal was to be 222, so I went down, like, 15 pounds. That just shows how Preston works."
+
+Greene's training program didn't just work for the athlete, it excelled. Yeguete was a starting forward for most of the 2013-2014 season and racked up about  900 minutes and about 200 rebounds.
+
+With the Gators finishing the season as SEC champions and making it to the Final Four in the NCAA tournament, Greene couldn't be happier. His enthusiasm is a staple for the team — win or lose.
+
+“One way I’ve been successful is I’m very, very energetic and very passionate about what we do," he described. "So when my guys come in to train, they tend to feed off my energy. When they come in, I’m ready to go right off the bat.”
+
+On the court, Yeguete feeds off his own passion.
+
+“Playing basketball here is really fun," he raved. "It’s been really, really fun being here. Being out there, having fun with my teammates — that’s what keeps me going — Just going out there and doing what I love to do. It’s fun going out there with them and just trying to get better and seeking greatness."
+
+And greatness is expected.
+
+“They know from Day 1 that there is a certain level of expectation that needs to be met on the court," Greene revealed. “Coach Donovan tells these guys during the recruiting process and during their time here, 'We are going to work in this program. You’re not just going to show up and play games. You are going to practice every day. You are going to condition. You are going to lift weights. You are going to do all these things in order to be successful, and that’s kind of the values of our program.' Our program is based on hard work. They get this message from everybody.”
+
+Everyone includes former Gator athletes who have gone on to play in the NBA -- guys like Joakim Noah, Bradley Beal and Chandler Parsons.
+
+"They see these guys come back and work and that really hits home with our young guys," Greene noted. "It’s like, ‘Hey! OK, these guys are not just talented. They work to be successful.’”
+
+For the freshmen, the seniors spread the message, set a good example and amp up the energy.
+
+“We have to lead the team," Yeguete stressed. "We have to be ready to go every single day, and we have to make sure they’re ready to go every single day, so we have to bring it."
+
+Side bar info: Pre-game snack? Applesauce Drink? Gatorade – dark and light blue Song? “I usually listen to what the teammates put on in the locker room.” Ritual? Pray before they go out on the court
 	 
 
 
