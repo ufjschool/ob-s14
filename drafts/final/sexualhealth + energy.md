@@ -20,7 +20,7 @@ To get these funds, health programs had to comply with an [eight-point definitio
 
 This is a downright lie.
 
-According to Samantha Evans, health promotion specialist at GatorWell Health Promotion Services with about ten years of experience in sex education, healthy sexual activity in a setting where you're comfortable and not being coerced can have positive effects on the body and mind.
+According to Samantha Evans, health promotion specialist at GatorWell with about ten years of experience in sex education, healthy sexual activity in a setting where you're comfortable and not being coerced can have positive effects on the body and mind.
 
 Among these are: 
 
