@@ -8,7 +8,7 @@ That's not to say that everything you know about sex is wrong, but if you attend
 
 “The idea that that stuff they were telling me might have been wrong, and that might have been perfectly legal and okay, was super scary to me,” she said.
 
-###A quick lesson in American history and poor decision-making: 
+####A quick lesson in American history and poor decision-making: 
 
 The scare tactics favored by many public school health programs (also known as the “don’t have sex or you’ll get pregnant and die” approach) have their roots in 1981, when the federal government under the Reagan administration threw its support behind abstinence-only-until-marriage education programs.
 
@@ -48,7 +48,7 @@ Exclusive focus on STIs in health education detracts from time spent discussing 
 
 “The baseline of the comprehensive approach [to sex education] is that knowledge is power,” said Evans.
 
-###The lasting effects of a lacking education
+####The lasting effects of a lacking education
 
 Many people respond to our educators' refusal to educate us about sex by doing their own research. And many of them are successful, but some only run into more myths and misconceptions thanks to well-meaning peers and unreliable sources on the Internet spreading misinformation.
 
