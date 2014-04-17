@@ -1,18 +1,20 @@
-#Katherine Hahn 
+##School Spirits 
 
-###HAUNTED UF
+####*The rumors, experiences and investigations surrounding haunted legends*
 
-Ghost stories are strange animals. Year after year, you hear them in different voices, see them through different lenses. You can’t prove they exist but can never seem to put a figure on why they don’t. 
+Ghost stories are strange animals. Year after year, you hear them in different voices, see them through different lenses. You can’t prove they exist but can never seem to put a finger on why they don’t. 
 
-Tracing its roots back before the Civil War, the University of Florida has quite a past. This university has seen world wars and world peace, segregation and integration. It’s seen national championships. And like anything of a great age, this university has seen death. Lots of death.
+Tracing its roots back to before the Civil War, the University of Florida has quite a past. This university has seen world wars and world peace, segregation and integration. It’s seen national championships. And like anything of a great age, this university has seen death. Lots of death.
 
 With death and history comes the inevitable –- the ghost story. 
 
 From haunted elevators to a suicide legend involving one of Tom Petty's most famous songs, these stories live on, passed from class to class. Regardless of whether they actually happened, they are a permanent part of UF history. 
 
-Curious? We'd like to take you on a ghost tour through some of the weirdest rumors the Gator Nation has to offer.
+Curious? We'd like to take you on a ghost tour through some of the weirdest stories the Gator Nation has to offer.
 
 Keep reading, if you dare.
+
+###Tower Tall Tale?
 
 ####"The lights were all off" 
 
@@ -60,7 +62,7 @@ From what I gather, it’s a Gator household story that a female student committ
 
 According to the people who should know, however, there is no record of a girl killing herself by jumping from Beaty. I contacted the one man who might know if anyone does: Carl Van Ness, curator for manuscripts and archives at the UF libraries.
 
-####An “American Girl”?
+####An “American Girl?"
 
 The suicide legend stems from the Tom Petty song “American Girl,” Van Ness said. A popular interpretation of the song is a girl contemplating suicide. The connection to the University of Florida and, specifically, Beaty Towers, comes from the second stanza:
 
@@ -94,7 +96,7 @@ I asked current Beaty resident Wallis O'Hagan, 20, what she thought of the whole
 I realized I'd just helped the legend live on.
 
 
-#James Thieke 
+###A Night in Norman
 
 
 James W. Norman Hall houses the University of Florida’s College of Education, named for the man who was the college’s dean from 1920 to 1941. The naming occurred in 1958, but the building itself opened in 1934. At that time, it housed P.K. Yonge Laboratory School, and rumors abound that an incident during that time has left Norman Hall haunted ever since.
@@ -277,13 +279,13 @@ Nichols does say that more individual scientists, if not science as a whole, are
 
 “These experiences are an important part of the human experience,” he says. “And no attempt to understand the human mind would be complete without considering these experiences.”
 
-#Emilie Shinskie 
+###Paranormal Problem Solvers
 
 I was curious, curious about who these people were and skeptical about what they did. 
 
 I walked into the Engineering Building on the UF campus at 7:50 p.m., looking for the white polo shirts he said they’d be wearing. On their website they claimed to be “everyday people,” passionate and interested in researching and investigating paranormal activity.  
 
-Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a PhD student in anthropology at UF and member of the non-profit organization, shook my hand kindly. 	
+Pete Bolejack, the founder of Florida Paranormal Investigations (FPI), and Stephanie Boothby, a doctoral student in anthropology at UF and member of the non-profit organization, shook my hand kindly. 	
 
 They were more professional and gentler-looking than I had imagined. I felt silly for carrying my pepper spray along with me, thinking that I’d have to protect myself from something paranormal that might have tagged along for the interview.    
 
@@ -364,11 +366,11 @@ But FPI isn't in this to chase the hype, glam and glitz of ghost stories; they'r
 And for the first time, I, too, was beginning to acknowledge this. 
 
 
-####Ghosts or no ghosts?
+###Real...or Unreal?
 
-We've come to the end of our tour. Some of us saw ghosts, some of us simply experienced the quiet of old buildings and the sensations of history. We've talked to students, like us, who have seen, heard and felt things they could not understand. We've talked to professionals who know more about the supernatural than we ever will. We even tried our hand at ghost hunting, emerging from the corridors of Norman Hall without proof that ghosts exist -- but still unable to say with certainty that they don't. 
+We've come to the end of our tour. Some of us saw ghosts, some of us simply experienced the quiet of old buildings and the sensations of history. We've talked to students like us who have seen, heard and felt things they could not understand. We've talked to professionals who may know more about the supernatural than we ever will. We even tried our hand at ghost hunting, emerging from the corridors of Norman Hall without proof that ghosts exist -- but still unable to say with certainty that they don't. 
 
-Maybe hauntings happen, maybe they are simply dripping faucets that can be explained away. Maybe people who believe in ghosts see ghosts. Maybe, we're not meant to know for sure. 
+Maybe hauntings happen, maybe they are simply dripping faucets that can be explained away. Maybe people who believe in ghosts see ghosts. Maybe we're not meant to know for sure. 
 
 Even if the University of Florida isn't haunted by unfortunate school children or suicidal American girls, the rumors live on like restless spirits. It's part of the culture that colors the school and adds character to the experience of four years here. We'll keep our ghost stories, true or not -- just because they belong to us.  
 
