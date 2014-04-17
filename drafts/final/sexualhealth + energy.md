@@ -10,9 +10,17 @@ That's not to say that everything you know about sex is wrong, but if you attend
 
 ####A quick lesson in American history and poor decision-making: 
 
+```
+column photo of bulesque dancer. file is whatever.jpg. Caption: "This is my caption"
+```
+
 The scare tactics favored by many public school health programs (also known as the “don’t have sex or you’ll get pregnant and die” approach) have their roots in 1981, when the federal government under the Reagan administration threw its support behind abstinence-only-until-marriage education programs.
 
 That governmental support developed into [three funding streams]( http://www.siecus.org/index.cfm?fuseaction=page.viewPage&pageID=1340&nodeID=1): the Adolescent Family Life Act, the Community-Based Abstinence Education program and the Title V program. Between 1996 and 2007, over $1.5 billion was fed into abstinence-only education programs through federal and state matching funds. 
+
+```
+column-right pullquote "This was an amzing thing that happened." by Bob Susan Jones.
+```
 
 The first two funding streams were shut down in 2010, but Title V was renewed in March of that year, and the government allocated $50 million per year in mandatory funding for 2010-2014.
 
