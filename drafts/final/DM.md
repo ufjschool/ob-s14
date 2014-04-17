@@ -4,11 +4,11 @@ Slug: Dance+ENERGY
 
 	By: Amber Dawson
 	
-		Dance Marathon at The University of Florida is celebrating its 20th anniversary this year on April 12.  For the first time in school history, fundraisers helped break the $1,000,000 fundraising threshold last year, and the passion students feel for the cause has done nothing but grow.  
+Dance Marathon at The University of Florida is celebrating its 20th anniversary this year on April 12. For the first time in school history, fundraisers helped break the $1,000,000 fundraising threshold last year, and the passion students feel for the cause has done nothing but grow.  
 		
-		The event features miracle children, who are children that have been treated by UF Health Shands hospital. The children have battled life-threatening illnesses and have been or are still being treated at the hospital, a Children’s Miracle Network Hospital. 
-		
-		Throughout the event, miracle children join their families on stage and tell their stories to the dancers who are making miracles happen every day by fundraising through the Children’s Miracle Network. The miracle children and students who are involved in Dance Marathon form special bonds that inspire the students to keep raising money in order to make more miracles happen for sick children. 
+The event features miracle children, who are children that have been treated by UF Health Shands hospital. The children have battled life-threatening illnesses and have been or are still being treated at the hospital, a Children’s Miracle Network Hospital. 
+
+Throughout the event, miracle children join their families on stage and tell their stories to the dancers who are making miracles happen every day by fundraising through the Children’s Miracle Network. The miracle children and students who are involved in Dance Marathon form special bonds that inspire the students to keep raising money in order to make more miracles happen for sick children. 
 		
 		For an event as big as DM at UF to take place, a lot of time and energy has to be spent by participating students before and during the event. One group of students is so passionate, so caring, and so wild about Dance Marathon, that the individuals in the group are designated as Morale Captains, or the morale that keeps the dancers dancing and makes sure every person leaves the event more inspired than they were before it began. 
 		
