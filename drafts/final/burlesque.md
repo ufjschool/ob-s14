@@ -1,4 +1,4 @@
-#The Mischievous Madams Bring Sexy Back to Gainesville
+#The Mischievous Madams Bring Sexy Back
 
 Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a scarlet broad-skirted dress, her bright eyes ready to capture the imaginations of the crowd. Before long, she’ll have them in the palm of her hand.
 
