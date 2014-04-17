@@ -3,6 +3,28 @@ Orange &amp; Blue issue for Spring 2014
 
 [This is how we edit](https://vimeo.com/89416125)
 
+[This is how we insert assets into our articles](https://vimeo.com/92210964)
+
+### Asset types
+
+* photo
+* slideshow gallery (multiple photos)
+* grid gallery (multiple photos)
+* video
+* audio
+* pull quote
+* generic embed (we can use this for maps or to write our own widgets if we want; coffee team needs these for panoramas)
+
+
+### Asset alginments
+
+* full (100% of the browser width; best used for cover imagery at the beginning of a section)
+* column (same as width of paragraph text; approximately 900px wide on a desktop)
+* column-right (half-width of paragraph text and floated right; approxiamtely 450px wide)
+* column-left
+* breaking-right (half with of paragraph plus extra width to bust into the margins; approximately 550px wide)
+* breaking-left
+
 # Energy
 
 ## Staff
