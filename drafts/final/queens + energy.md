@@ -1,4 +1,4 @@
-[will have title by tonight]
+[will have title by thursday morning]
 
 At 5:30 p.m. on a rainy Wednesday, the University Club is dim and deserted. Chastity Rose opens the bar at 5 p.m., so I meet her there, upstairs, where there are only two or three other people and the quiet background noise of the TV screen playing a movie I don’t recognize.  
 
