@@ -46,5 +46,15 @@ She admits her favorite part of the trip has been getting to meet so many new pe
 
 “I don’t know about that,” she said. “After I made it to California I couldn’t wait to see what was in store for me next, so I’ll just say maybe on running around the world.” 
 
+Captions: All photos courtesy of Athena Papadopoulos
+
+(Athena on beach photo) Athena Papadopoulos stands with her stroller, named Wilson, as she prepares to embark on her coast-to-coast journey.  The frigid temperatures on Jacksonville Beach the morning of January 3, 2012 made the first day of her journey rather difficult. 
+
+(Athena with California sign) Papadopoulos stops to take a quick selfie with the California sign. After running for 147 days she finally made it to the last state in her journey. 
+
+(Athena with stroller running) Papadopoulos sports a Kenya Jersey as she runs across the nation. She would wear the outfit as a reminder of why she was running coast-to-coast.
+
+(Athena with stroller and sign) Papadopoulos stops to take a photo with her trusted stroller Wilson. She admitted to be stopped often by people passing by to ask what why she was running down rural streets. 
+
 	
 
