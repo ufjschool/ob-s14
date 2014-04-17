@@ -16,7 +16,7 @@ Keep reading, if you dare.
 
 ###Tower Tall Tale?
 
-####"The lights were all off" 
+#####"The lights were all off" 
 
 It happened in Beaty Towers East, on the third floor. Ben D. (he didn't want his last name used or to tell the story first hand) was in his room trying to get to sleep, said then-sophomore Arianne Romero, 21, Ben's friend, to whom he told the story the next day. As he lay in bed he began to hear a familiar sound: the rolling chairs moving around in the kitchen area.
 
@@ -37,7 +37,7 @@ He ignored it until he saw his doorknob turn, slowly.
 “He didn’t go to sleep that night,” Romero said.
 
 
-####A Little History
+#####A Little History
 
 Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, an eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967 but was eventually named after professor Robert Calder Beaty (http://www.uff.ufl.edu/Facilities/Facilities.asp?ID=104). Beaty was a World War I veteran and former University of Florida Dean of Student Personnel who retired in 1960.
 
@@ -52,7 +52,7 @@ As a freshman, my then-boyfriend lived in Beaty East, and I was practically the 
 Looking back two years ago, I try to remember if my ex and I even talked about the rumor. We probably mentioned it at some point, but it doesn't stand out in my memory. Though if I had heard Romero's story, I might have thought twice about camping out there. 
 
 
-####A suicide legend
+#####A suicide legend
 
 People have died on the UF campus. Death is an inevitability among 50,000 students. Some of them have died in their dorm rooms, some in Beaty Towers. A simple Google search of “UF student died Beaty Towers” turns up old Gainesville Sun articles with details. One of the first to come up is a November 1987 write-up of the alcohol poisoning death of 18-year-old freshman Robert Stevenson, who was found in his dorm room at Beaty Towers East (http://news.google.com/newspapers?nid=1320&dat=19871126&id=Hj9WAAAAIBAJ&sjid=D-oDAAAAIBAJ&pg=3704,3048058).
 
@@ -62,7 +62,7 @@ From what I gather, it’s a Gator household story that a female student committ
 
 According to the people who should know, however, there is no record of a girl killing herself by jumping from Beaty. I contacted the one man who might know if anyone does: Carl Van Ness, curator for manuscripts and archives at the UF libraries.
 
-####An “American Girl?"
+#####An “American Girl?"
 
 The suicide legend stems from the Tom Petty song “American Girl,” Van Ness said. A popular interpretation of the song is a girl contemplating suicide. The connection to the University of Florida and, specifically, Beaty Towers, comes from the second stanza:
 
