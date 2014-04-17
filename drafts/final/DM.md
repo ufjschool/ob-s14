@@ -2,7 +2,7 @@ Slug: Dance+ENERGY
 
 ##Morale is All You Need
 
-	By: Amber Dawson
+By: Amber Dawson
 	
 Dance Marathon at The University of Florida is celebrating its 20th anniversary this year on April 12. For the first time in school history, fundraisers helped break the $1,000,000 fundraising threshold last year, and the passion students feel for the cause has done nothing but grow.  
 		
@@ -10,65 +10,67 @@ The event features miracle children, who are children that have been treated by 
 
 Throughout the event, miracle children join their families on stage and tell their stories to the dancers who are making miracles happen every day by fundraising through the Children’s Miracle Network. The miracle children and students who are involved in Dance Marathon form special bonds that inspire the students to keep raising money in order to make more miracles happen for sick children. 
 		
-		For an event as big as DM at UF to take place, a lot of time and energy has to be spent by participating students before and during the event. One group of students is so passionate, so caring, and so wild about Dance Marathon, that the individuals in the group are designated as Morale Captains, or the morale that keeps the dancers dancing and makes sure every person leaves the event more inspired than they were before it began. 
+For an event as big as DM at UF to take place, a lot of time and energy has to be spent by participating students before and during the event. One group of students is so passionate, so caring, and so wild about Dance Marathon, that the individuals in the group are designated as Morale Captains, or the morale that keeps the dancers dancing and makes sure every person leaves the event more inspired than they were before it began. 
+
+When considering the energy behind the morale team, one cannot ignore the passion of their Overall chair and leader, Joelle Waksman. Waksman graduated from UF in Spring 2013, but her passion for Dance Marathon led her to stay in Gainesville for one more year to be the leader of the morale team. 
 		
-		When considering the energy behind the morale team, one cannot ignore the passion of their Overall chair and leader, Joelle Waksman. Waksman graduated from UF in Spring 2013, but her passion for Dance Marathon led her to stay in Gainesville for one more year to be the leader of the morale team. 
+Waksman’s passion and energy toward the cause convinced her that she was meant to stay another year in Gainesville to lead the Dance Marathon at UF morale team and raise money for the children she had grown to love over her previous four years at UF. 
 		
-		Waksman’s passion and energy toward the cause convinced her that she was meant to stay another year in Gainesville to lead the Dance Marathon at UF morale team and raise money for the children she had grown to love over her previous four years at UF. 
+To Waksman, a miracle child is, “an incredible spirit who constantly gives us inspiration to keep driving forward and doing the best we can to make miracle happen.”
+
+Members of the morale team as well as other students involved in Dance Marathon get their energy to keep pushing forward throughout the 26.2 hours through the inspiration of the miracle children.  
 		
-		To Waksman, a miracle child is, “an incredible spirit who constantly gives us inspiration to keep driving forward and doing the best we can to make miracle happen.”
+Upon meeting the morale team, one cannot question that a major source of energy that keeps team members going throughout the event is not only their passion for helping save the lives of children, but also their love for each other. 
 		
-		Members of the morale team as well as other students involved in Dance Marathon get their energy to keep pushing forward throughout the 26.2 hours through the inspiration of the miracle children.  
+“The morale team meets once a week, and our meetings are incredible,” Waksman said. “We know how to get down to business but also spend time getting to know each other, bonding and doing fun activities to deepen our team connection.”
 		
-		Upon meeting the morale team, one cannot question that a major source of energy that keeps team members going throughout the event is not only their passion for helping save the lives of children, but also their love for each other. 
+Members of the morale team for Dance Marathon at UF begin exerting their energy toward the cause they are so passionate about long before the event begins. After applying to become a member of the team through the Dance Marathon Captain application process, morale team members host various events throughout the school year to raise money for the cause. 	Members of the team also schedule hospital visits to tour Shands Hospital, the CMN hospital they raise money for, and spend time with the miracle children who inspire them every day. 
+	
+Everyone can spot the morale team throughout the entire 26.2 hours of Dance Marathon. They are the captains decked out in colorful and elaborate costumes planned out days and sometimes weeks in advanced. They are the energy that flows through the veins of Dance Marathon. 
 		
-		“The morale team meets once a week, and our meetings are incredible,” Waksman said. “We know how to get down to business but also spend time getting to know each other, bonding and doing fun activities to deepen our team connection.”
+Every hour, when the opening song of the line dance begins, everyone knows they will be inspired to keep standing for the children in need, because the morale team always brings the energy. Morale team members inspire the dancers to keep dancing by leading them in the line dance they created for the event. 
 		
-		Members of the morale team for Dance Marathon at UF begin exerting their energy toward the cause they are so passionate about long before the event begins. After applying to become a member of the team through the Dance Marathon Captain application process, morale team members host various events throughout the school year to raise money for the cause. 	Members of the team also schedule hospital visits to tour Shands Hospital, the CMN hospital they raise money for, and spend time with the miracle children who inspire them every day. 
+But, what keeps this team of student leaders energized? How can you find them at the end of the event with smiles on their faces just as big and wide as their smiles were when the event started? If you ask Soma Nwokolo, 23, student at UF Law and third year morale team member, the answer is simple. The morale team members motivate each other to keep their spirits high.  
 		
-		Everyone can spot the morale team throughout the entire 26.2 hours of Dance Marathon. They are the captains decked out in colorful and elaborate costumes planned out days and sometimes weeks in advanced. They are the energy that flows through the veins of Dance Marathon. 
+“We fed off each others energy,” Nwokolo said. “Every time we do the line dance, it recharges my energy too. And every time you get to hear a story from a miracle child, that is another boost of energy to be reminded why we are doing this. At this point, having started my involvement with Dance Marathon six years ago, I have watched some of these kids grow up before my eyes and get sick and get better. So, it touches me more and more each year. That is the ultimate motivation.”
 		
-		Every hour, when the opening song of the line dance begins, everyone knows they will be inspired to keep standing for the children in need, because the morale team always brings the energy. Morale team members inspire the dancers to keep dancing by leading them in the line dance they created for the event. 
+Originally not having been chosen to have a spot as a dancer in Dance Marathon her freshman year the UF, Nwokolo was devastated. 
 		
-		But, what keeps this team of student leaders energized? How can you find them at the end of the event with smiles on their faces just as big and wide as their smiles were when the event started? If you ask Soma Nwokolo, 23, student at UF Law and third year morale team member, the answer is simple. The morale team members motivate each other to keep their spirits high.  
+“Getting a spot as a dancer was very competitive, and I originally wasn't chosen,” she said. “But fortunately, a spot opened up, and our delegates offered it to me, because I had been really upset when I wasn't chosen the first time. All I knew going into the event was that we were raising money for Shands Hospital, and that it was a really fun, really big event and that all my friends would be there. Part of my desire to be involved was that I just didn't want to miss out on this big event that I had been hearing about for the past 9 months! When I got to the event and got to hear from the miracle families and see the impact we were making, I was hooked.” 
 		
-		“We fed off each others energy,” Nwokolo said. “Every time we do the line dance, it recharges my energy too. And every time you get to hear a story from a miracle child, that is another boost of energy to be reminded why we are doing this. At this point, having started my involvement with Dance Marathon six years ago, I have watched some of these kids grow up before my eyes and get sick and get better. So, it touches me more and more each year. That is the ultimate motivation.”
+And Nwokolo hasn’t stopped dancing since. But now, she dances as a morale captain. 
 		
-		Originally not having been chosen to have a spot as a dancer in Dance Marathon her freshman year the UF, Nwokolo was devastated. 
+Many people do not realize the energy that not only goes into Dancer Marathon, but also the energy dancers exert over the 26.2 hours of standing. Every hour on the hour when the energy level is falling and some dancers begin to struggle to understand how they will make it through the 26.2 hours, a beacon of hope shines down in the Stephen C. O’Connell Center when the line dance song begins and the morale team graces the stage with their moves.
 		
-		“Getting a spot as a dancer was very competitive, and I originally wasn't chosen,” she said. “But fortunately, a spot opened up, and our delegates offered it to me, because I had been really upset when I wasn't chosen the first time. All I knew going into the event was that we were raising money for Shands Hospital, and that it was a really fun, really big event and that all my friends would be there. Part of my desire to be involved was that I just didn't want to miss out on this big event that I had been hearing about for the past 9 months! When I got to the event and got to hear from the miracle families and see the impact we were making, I was hooked.” 
+When the physical exhaustion kicks in and the overall morale begins to gradually decline, morale team members combat their exhaustion by having friends and family members bring them treats that will keep their energy levels high. 
 		
-		And Nwokolo hasn’t stopped dancing since. But now, she dances as a morale captain. 
-		
-		Many people do not realize the energy that not only goes into Dancer Marathon, but also the energy dancers exert over the 26.2 hours of standing. Every hour on the hour when the energy level is falling and some dancers begin to struggle to understand how they will make it through the 26.2 hours, a beacon of hope shines down in the Stephen C. O’Connell Center when the line dance song begins and the morale team graces the stage with their moves.
-		
-		When the physical exhaustion kicks in and the overall morale begins to gradually decline, morale team members combat their exhaustion by having friends and family members bring them treats that will keep their energy levels high. 
-		
-	 	“Sour candy is my best friend always, but especially during DM,” Missy Perez, 21, second year captain, said. 
+“Sour candy is my best friend always, but especially during DM,” Missy Perez, 21, second year captain, said. 
 	 	
-		While morale team member Perez can be found chowing down on her favorite sour candies, you can find Nwokolo sipping on a smoothie. The overall ambiance however is still always enough to keep them both going. 
-		“I think that because I am around a lot of special people and because there is always something going on, that is really what keeps my energy up,” Nwokolo said. 
+While morale team member Perez can be found chowing down on her favorite sour candies, you can find Nwokolo sipping on a smoothie. The overall ambiance however is still always enough to keep them both going. 
 		
-		Becoming a morale captain is not easy. When applying for a captain position for Dance Marathon at UF, students are allowed to apply for up to three teams they would like to work with, but can only interview for two. About 140 people applied to be on the morale team for Dance Marathon this year, and few were chosen. Many team members have been on the team for years. Students must truly standout in order to be considered for a position on the Morale team. Nwokolo remembers her first interview. 
+“I think that because I am around a lot of special people and because there is always something going on, that is really what keeps my energy up,” Nwokolo said. 
 		
-		“I was so nervous,” she said. “Everyone had told me that it was really difficult to be chosen as a morale captain, because it was so competitive. Kristen Gillis interviewed me. I had met her once before, and she was one of those people that I didn't really know but I was so in awe with because she had such a warm and big personality and was so involved. She was one of those people that I just wanted to be exactly like. But, she is also one of those people that makes you feel like you are her best friend in the first two seconds you meet her.”
-		Nwokolo knew she had to stand out to be chosen as a team member. 
+Becoming a morale captain is not easy. When applying for a captain position for Dance Marathon at UF, students are allowed to apply for up to three teams they would like to work with, but can only interview for two. About 140 people applied to be on the morale team for Dance Marathon this year, and few were chosen. Many team members have been on the team for years. Students must truly standout in order to be considered for a position on the Morale team. Nwokolo remembers her first interview. 
 		
-		“At the end of the interview she asked me what it meant to me to get rowdy and I just stood up and blurted out the rowdy cheer we used to do at football games at my high school. I stood up and did cheerleader claps and weird hand movements and yelled in her face. I was never a cheerleader. I was almost embarrassed afterwards, but she was still smiling and that made me feel really good about the interview.”
+“I was so nervous,” she said. “Everyone had told me that it was really difficult to be chosen as a morale captain, because it was so competitive. Kristen Gillis interviewed me. I had met her once before, and she was one of those people that I didn't really know but I was so in awe with because she had such a warm and big personality and was so involved. She was one of those people that I just wanted to be exactly like. But, she is also one of those people that makes you feel like you are her best friend in the first two seconds you meet her.”
 		
-		Missy Perez, a second year captain, also showed her passion for Dance Marathon through her interview last year. 
+Nwokolo knew she had to stand out to be chosen as a team member. 
 		
-		“I wanted to do something different, so I creepily created a puzzle with a collage of all the current Morale Captains making silly faces and wrote "MORALE 2013!!!" across the collage, which was the team I was trying to become a part of,” she said. “Then, I asked Angela (previous Overall) to solve the puzzle as I quietly played "I Want You to Want Me" in the background. The catch, though, was that I had withheld a piece. A piece that contained my face on it- beautiful selfie of course, and I told Angela it seemed the Morale 2013 puzzle and team was incomplete without that piece.”
+“At the end of the interview she asked me what it meant to me to get rowdy and I just stood up and blurted out the rowdy cheer we used to do at football games at my high school. I stood up and did cheerleader claps and weird hand movements and yelled in her face. I was never a cheerleader. I was almost embarrassed afterwards, but she was still smiling and that made me feel really good about the interview.”
 		
-		When watching the morale team members throughout Dance Marathon, it becomes obvious how their passion for Dance Marathon and love for each other keeps them motivated to motivate dancers throughout the event.
+Missy Perez, a second year captain, also showed her passion for Dance Marathon through her interview last year. 
+		
+“I wanted to do something different, so I creepily created a puzzle with a collage of all the current Morale Captains making silly faces and wrote "MORALE 2013!!!" across the collage, which was the team I was trying to become a part of,” she said. “Then, I asked Angela (previous Overall) to solve the puzzle as I quietly played "I Want You to Want Me" in the background. The catch, though, was that I had withheld a piece. A piece that contained my face on it- beautiful selfie of course, and I told Angela it seemed the Morale 2013 puzzle and team was incomplete without that piece.”
+		
+When watching the morale team members throughout Dance Marathon, it becomes obvious how their passion for Dance Marathon and love for each other keeps them motivated to motivate dancers throughout the event.
 		Perez said the bond between members of the morale team is indescribable. 
 		
-		“If I had to compare the bond of the morale team to something, I’d probably compare it to Lilo and Stitch’s bond,” she said. “Some serious ohana. That’s pretty deep.” 
+“If I had to compare the bond of the morale team to something, I’d probably compare it to Lilo and Stitch’s bond,” she said. “Some serious ohana. That’s pretty deep.” 
 		
-		The deepness of that bond is what led Waksman to stay one more year in Gainesville to lead the morale team she had been a part of for the past two years of Dance Marathon at UF. 
+The deepness of that bond is what led Waksman to stay one more year in Gainesville to lead the morale team she had been a part of for the past two years of Dance Marathon at UF. 
 		
-		“I believe a lot of what keeps us energized throughout the event is our pure passion and love for Dance Marathon and everyone involved,” Waksman said. “There’s honestly nothing more fun then spending a straight 26.2 hours with hundreds and hundreds of people that are all hanging out for the same reasons. As morale captains, the team spends the entire year planning the event, planning the theme hours we put on during the event and forming friendships that are culminated throughout the year. Morale becomes a huge family, and being together is honestly the best way to ensure we have enough energy throughout the event!”
+“I believe a lot of what keeps us energized throughout the event is our pure passion and love for Dance Marathon and everyone involved,” Waksman said. “There’s honestly nothing more fun then spending a straight 26.2 hours with hundreds and hundreds of people that are all hanging out for the same reasons. As morale captains, the team spends the entire year planning the event, planning the theme hours we put on during the event and forming friendships that are culminated throughout the year. Morale becomes a huge family, and being together is honestly the best way to ensure we have enough energy throughout the event!”
 		
-		Many different teams of captains are responsible for making Dance Marathon at UF the event that it has become over the past 20 years. The hard work undergone by hundreds of students to make this event happen is something Waksman can attest to. But she, like the rest of the morale team, is responsible for maintaining the overall morale throughout the event. 
+Many different teams of captains are responsible for making Dance Marathon at UF the event that it has become over the past 20 years. The hard work undergone by hundreds of students to make this event happen is something Waksman can attest to. But she, like the rest of the morale team, is responsible for maintaining the overall morale throughout the event. 
 		
-		“Honestly, the word ‘morale’ to me hasn’t meant the dictionary definition in many years,” she said. “To me, “morale” is family. It’s a group of cooky, interesting, and extraordinary people whose passion, love and devotion to DM and each other is infectious. Morale is memories, laughs, tears, love and best friendship. Morale is figuring out who you are through the care and love of others. Morale is being the best version of yourself.” 
+“Honestly, the word ‘morale’ to me hasn’t meant the dictionary definition in many years,” she said. “To me, “morale” is family. It’s a group of cooky, interesting, and extraordinary people whose passion, love and devotion to DM and each other is infectious. Morale is memories, laughs, tears, love and best friendship. Morale is figuring out who you are through the care and love of others. Morale is being the best version of yourself.” 
