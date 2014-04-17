@@ -1,4 +1,5 @@
-[will have a headline by thursday morning + am still adding to word count]
+###Let's Talk About Sex:
+#####Your Health, Your Body and Why Knowledge is Power
 
 Here's a fun fact: Florida state law does not require sexual health education to be [medically accurate](https://www.guttmacher.org/statecenter/spibs/spib_SE.pdf).
 
