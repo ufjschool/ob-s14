@@ -1,6 +1,6 @@
 CYM:
 
-Nestled off of NW eighth Avenue, CYM Coffee Co. is known to its regulars as a home away from home. With a wrap around porch, bean bag chairs and a fat cat that permanently resides on a bench outside, CYM aims to reach out to the community, fostering creativity.
+Nestled off of NW eighth Avenue, CYM Coffee Co. is known to its regulars as a home away from home. With a wraparound porch, bean bag chairs and a fat cat that permanently resides on a bench outside, CYM aims to reach out to the community, fostering creativity.
 Meet your barista: Tom Thorkildson, a 41-year-old musician and bartender who has been with CYM since it opened its doors in 2012. When he’s not behind the counter, he might be playing guitar at CYM’s open mic night on Thursdays.
 
 Q. Why CYM? What makes it different?
@@ -13,7 +13,7 @@ Q. What’s the worst part about working at CYM?
 A. I can’t even think about something bad about it. It’s just great.
 
 Q. It’s a customer’s first time. What do you recommend? 
-A. I like to steer people into trying coffee from different places and different origins. I start people off, if their interested, in trying different types of coffee and then we get into different brew methods. I usually try to do something that will compliment the flavor of the coffee, but we have a lot of cool specialty drinks that are cool and fun.
+A. I like to steer people into trying coffee from different places and different origins. I start people off, if they're interested, in trying different types of coffee and then we get into different brew methods. I usually try to do something that will compliment the flavor of the coffee, but we have a lot of cool specialty drinks that are cool and fun.
 
 Q. What’s the most popular drink?
 A. Mint Mocha
@@ -22,10 +22,10 @@ Q. When I’m hyped on coffee, I ___________
 A. I do math better?
 
 Q. What’s a normal day like at CYM?
-A. A normal day here is you meet somebody new and make a connection. There is a lot of networking going on. You end up introducing someone to someone else. It’s very community oriented here. Everyone knows everyone. It’s just like working at Cheers. 
+A. A normal day here is you meet somebody new and make a connection. There is a lot of networking going on. You end up introducing someone to someone else. It’s very community-oriented here. Everyone knows everyone. It’s just like working at Cheers. 
 
 Q. What’s the weirdest thing that has happened at CYM?
-A. Because we have nursery, we often see wildlife we’ve seen fox and eagles and all sorts of different raptors. Some egrets come down and hangout. Seems like there’s always something funny going on around here. A fox showed up on our front porch one day.
+A. Because we have nursery, we often see wildlife. We’ve seen fox and eagles and all sorts of different raptors. Some egrets come down and hangout. Seems like there’s always something funny going on around here. A fox showed up on our front porch one day.
 
 Q. Is this your go-to coffee shop when you’re not working? 
 A. I’m always here, I really don’t go to any other coffee shops. 
@@ -45,10 +45,11 @@ BARISTA INTERVIEW: Karma Cream
 Its name fits its purpose. 
 
 With a drive to use solely organic ingredients and provide vegan-friendly options to customers, Kyle Fick, 29-year-old owner of Karma Cream, said he opened it with the intention of starting a business that was cruelty-free and socially responsible. 
+
 “Everything here is organic—our milk—it’s all grass-fed, hormone-free treated cows. My wife, she’s vegan. I’m vegetarian myself.  So there was kind of a purpose to this as well than just making money and scooping ice-cream. This is kind of a means to the end. I’d rather have an option that people might feel better about.”
 And that’s how he came up with the name, Karma Cream. 
-After graduating with a political science degree at the University of Florida, Fick started working in restaurants and sales and making music before deciding he wanted to do something on his own. 
-“I kind of from early on didn’t want to work for anyone else and wanted to play by my own rules,” he said. “So far it’s working out.”
+After graduating with a political science degree from the University of Florida, Fick started working in restaurants and sales and making music before deciding he wanted to do something on his own. 
+“I kind of, from early on, didn’t want to work for anyone else and wanted to play by my own rules,” he said. “So far it’s working out.”
 Fick has been the owner for almost five years, since Karma Cream opened in April 2009 on West University Avenue. Meet the barista, Kyle Fick:
 
 
@@ -59,7 +60,7 @@ Q. Why Karma Cream? What makes it different?
 A. We are committed to sourcing everything [as] organic as possible. For one, it’s much better for the planet. It’s much better for harvesters. It’s much better for the animals. Plus, you go out and get a coffee or latte and there’s a big mark-up there. It’s very cheap to brew a cup of coffee, so why not make sure it’s the best? You go to a restaurant and usually it’s a terrible ingredient and they make 20 bucks for a plate—something you can make at home with better ingredients. I kind of felt the logic behind marking up something that.
 
 Q. What’s the best part about working at Karma Cream?
-A. I love when people are just so happy with what they get here. We have a lot of people who are vegan or lack-toast intolerant, and the fact that they can eat things that they could never eat. To make people genuinely happy—I mean, that’s something that you expect from a kid, but grown people that are just so happy, that’s such an awesome thing to be a part of.
+A. I love when people are just so happy with what they get here. We have a lot of people who are vegan or lactose intolerant, and the fact that they can eat things that they could never eat. To make people genuinely happy—I mean, that’s something that you expect from a kid, but grown people that are just so happy, that’s such an awesome thing to be a part of.
 
 Q. What’s the worst part about working at Karma Cream?
 A. Just the responsibilities of being an owner; to try and juggle the responsibilities of working here all the time to taking care of all the back-end things as well. Wearing a lot of different hats. It’s a challenge for sure, but it’s working out.
@@ -71,7 +72,7 @@ Q. What do you recommend out of the coffee options?
 A. I recommend an almond milk latte. A lot of people want something different than dairy or want something different than soy. I like to keep it classic: a shot of espresso with some milk.
 
 Q. What’s the most popular drink? 
-A. The special right now, the Lavender Earl Grey Latte. We’ve been trying to add a lot of new things. We change the specials about once a month. We might change a special into a main item. A lot of it is just employee ideas. They just experiment. 
+A. The special right now, the Lavender Earl Grey Tea Latte. We’ve been trying to add a lot of new things. We change the specials about once a month. We might change a special into a main item. A lot of it is just employee ideas. They just experiment. 
 
 Q. When you’re hyped on coffee, you ______
 A.I actually don’t drink much coffee for that reason. I’ve always been pretty high-energy myself. When I drink coffee, I’m pumped. I’ll be running all over the place. I can do anything. It’s like a drug.
@@ -95,7 +96,7 @@ Q. If you had to describe this coffee shop in one word, what would it be?
 A: I’d say karma. That’s kind of why we named it. It was an alliteration, so that’s always a go-to. I’m not a Buddhist or Hindu, but definitely when I think of karma—realizing where and how you get products—you definitely have that purpose in mind that you know you put good karma back out there. 
 
 Q. What’s something most people don’t know about Karma Cream?
-A. We have fair trade. It took a year to open, which is a terrible thing. It was a smoke shop. It was a complete wreck in here. Everything was tore up. It wasn’t intended to be a café. It was kind of a weird set-up. We had to do lot of work to get this place to make any kind of sense. It’d definitely small. We’ve outgrown it, so we do our best to meet the demand. We certainly need more space. I try to be pretty conservative. It’s best to work with what you have until you’re 100 percent sure you’ve outgrown it. In the meantime, you should play it safe and don’t mess with the formula.
+A. We have fair trade. It took a year to open, which is a terrible thing. It was a smoke shop. It was a complete wreck in here. Everything was tore up. It wasn’t intended to be a café. It was kind of a weird setup. We had to do lot of work to get this place to make any kind of sense. It’d definitely small. We’ve outgrown it, so we do our best to meet the demand. We certainly need more space. I try to be pretty conservative. It’s best to work with what you have until you’re 100 percent sure you’ve outgrown it. In the meantime, you should play it safe and don’t mess with the formula.
 
 
 Fick said he never thought he would become an owner of a coffee shop.
@@ -123,7 +124,7 @@ Q. What inspires you?
 A. Good-tasting food. I’m a bit of a people-pleaser, so definitely making a customer happy, doing foam art, having fun while I’m here.
 
 Q. Why Maude’s? What makes it different?
-A. I’ve had some opportunities to get jobs at other places, and I’ve been here for six years now, so there’s definitely motivation to hang on, and part of that is definitely my dad and that our relationship has been able to grow since working together. He’s very easy to work for and with. The way we do the hiring here is that the employees hire, so you’re always able to choose the people you want to work with. Everybody hangs out outside of Maude’s and everybody does enjoy each other’s company when we are here. Nobody has gotten into any fights.” 
+A. I’ve had some opportunities to get jobs at other places, and I’ve been here for six years now, so there’s definitely motivation to hang on, and part of that is definitely my dad and that our relationship has been able to grow since working together. He’s very easy to work for and with. The way we do the hiring here is that the employees hire, so you’re always able to choose the people you want to work with. Everybody hangs out outside of Maude’s and everybody does enjoy each other’s company when we are here. Nobody has gotten into any fights. 
 
 Q. What’s the best part about working at Maude’s?
 A. Getting to do specials, coming up with really awesome soups, just being able to do new creative stuff all the time and really push my limits as a baker. Our core menu stays the same, but we always have specials going.  We do a lot of gluten-free specials. 
@@ -167,7 +168,7 @@ ________________________________________________________________________________
 
  Barista Interview: BAY ISLAND'S
 
-Jayme Brockman, 31, is the General Manager at Bay Island Coffee Co. Originally from south Florida, Brockman has now worked in the tiny coffee hut for almost two years. Aside choosing the best ingredients and making sure to know his customer's names, Brockman said it's important to make the coffee with a smile. Meet your barista, Jayme Brockman:
+Jayme Brockman, 31, is the general manager at Bay Island Coffee Co. Originally from South Florida, Brockman has now worked in the tiny coffee hut for almost two years. Aside from choosing the best ingredients and making sure to know his customers' names, Brockman said it's important to make the coffee with a smile. Meet your barista, Jayme Brockman:
 
 
 
@@ -178,33 +179,33 @@ Q. What’s the best part about working at Bay Island?
 A. It’s definitely the customer interaction. Here it’s all about knowing peoples names because, you know, we have a small team. It’s only about four of us. And we all have a different routine and coffee-making smile, but we all try to make people happy.
 
 Q. What’s the worst part about working at Bay Island?
-A. I have to say it’s the time. Waking up early so we can open by seven isn’t fun. Especially after Superbowl Sunday. 
+A. I have to say it’s the time. Waking up early so we can open by 7 a.m. isn’t fun. Especially after Super Bowl Sunday. 
 Q. It’s a customer’s first time. What do you recommend? 
-A. It depends on what they want. If you want a hot drink i’d recommend either a cup of coffee - we have different coffee beans from all over the world every month - or a mocha latte because everyone likes chocolate. You can’t go wrong with that. If you want an iced drink, get a caramel latte - that’s my favorite. But if you want frozen, then the frozen cappuccino is the way to go. 
+A. It depends on what they want. If you want a hot drink I’d recommend either a cup of coffee - we have different coffee beans from all over the world every month - or a mocha latte because everyone likes chocolate. You can’t go wrong with that. If you want an iced drink, get a caramel latte - that’s my favorite. But if you want frozen, then the frozen cappuccino is the way to go. 
 
 Q. What’s the most popular drink?
-A. The iced coffee in any flavor. Some people get it with coffee ice cubes so when the ice melts in doesn’t become watery.
+A. The iced coffee in any flavor. Some people get it with coffee ice cubes so when the ice melts it doesn’t become watery.
 
 Q. When I’m hyped on coffee, I _____
-A. Work faster. I probably have one or two cups of coffee depending on how long i’m working. But I always have at least one.  
+A. Work faster. I probably have one or two cups of coffee depending on how long I’m working. But I always have at least one.  
 
 Q. What’s a normal day like at Bay Island?
-A. I mean, It’s nothing that’s always the same. I make coffee. People order different things. During the weekend we get more food orders and more students.  
+A. I mean, it’s nothing that’s always the same. I make coffee. People order different things. During the weekend we get more food orders and more students.  
 
 Q. What’s the weirdest thing that has happened at Bay Island?
-A. I just get weird orders. One person gets a raspberry-coconut smoothie. It just seems like a weird combination but it’s actually pretty good.
+A. I just get weird orders. One person gets a raspberry-coconut smoothie. It just seems like a weird combination, but it’s actually pretty good.
 
 Q. What is the ratio of regulars vs. first-timers?
-A. The regulars know. Some will switch up their drinks but there are regulars always get the same thing. I know what they’re getting and I can pre-make it. The first-timers don’t really branch out in the menu. 
+A. The regulars know. Some will switch up their drinks, but there are regulars always get the same thing. I know what they’re getting and I can pre-make it. The first-timers don’t really branch out in the menu. 
 
 Q. Is this your go-to coffee shop when you’re not working? 
-A. For sure. Unless i’m out of town. But if i’m in town this is the only place I visit. 
+A. For sure. Unless I’m out of town. But if I’m in town, this is the only place I visit. 
 
 Q. If you had to describe this coffee shop in one word, what would it be?
 A. Excellent. I mean... we’re pretty awesome. 
 
 Q. What’s something most people don’t know about Bay Island?
-A. That we’re here, I mean... We’re pretty small. But other than that I would say some our menu options. We have a pretty big menu for such a tiny place. For example, not many people order our milkshakes. We also have a few off-menu items like a the Differccino, which is an iced cappuccino with two different syrup combinations - I like combining white chocolate and sugar-free hazelnut. We also have the Bay Island Shake, which is a combination between a smoothie and a milkshake. 
+A. That we’re here, I mean... We’re pretty small. But other than that, I would say some our menu options. We have a pretty big menu for such a tiny place. For example, not many people order our milkshakes. We also have a few off-menu items like a the Differccino, which is an iced cappuccino with two different syrup combinations. I like combining white chocolate and sugar-free hazelnut. We also have the Bay Island Shake, which is a combination between a smoothie and a milkshake. 
 
 
 ________________________________________________________________________
@@ -220,7 +221,7 @@ Q. Why Barnie's? What makes it different?
 A. I really like the atmosphere. I've had a few jobs. I hadn't had a job before a year ago, but in the past year, this is my third job, and it's by far the best work environment. It's just very relaxed. And also, I'm obsessed with coffee, so it works that I work at a coffee shop.
 
 Q. What’s your best part about working at Barnie's? 
-A. Honestly, the best part is that usually, like 9 times out of 10, I'm glad to be here and not wishing I was at home. With other jobs, I would just be like, I don't want to be here right now. But with here, I don't mind it. We talk in the back and we just make coffee ... The drinks definitely don't hurt.
+A. Honestly, the best part is that usually, like nine times out of 10, I'm glad to be here and not wishing I was at home. With other jobs, I would just be like, I don't want to be here right now. But with here, I don't mind it. We talk in the back and we just make coffee ... the drinks definitely don't hurt.
 
 
 Q. What’s the worst part about working at Barnie's? 
@@ -258,25 +259,25 @@ A. Coffee ... or just like a relaxed place.
 
 
 Q. What’s something most people don’t know about Barnie's? 
-A. Most people don't know that not every coffee shop uses grande, tall. Most people that don't come here don't know we serve beer and wine. That's a big part of at night, a lot of people come here for that. We have big jazz nights where a lot of people drink. Most people just assume it's coffee.
+A. Most people don't know that not every coffee shop uses grande, tall. Most people that don't come here don't know we serve beer and wine. At night, a lot of people come here for that. We have big jazz nights where a lot of people drink. Most people just assume it's coffee.
 
 _____________________________________________________________________________________________________
 BARISTA INTERVIEW: COFFEE CULTURE
 
 
-Caitlyn Vinci, 22, has been a barista at Coffee Culture on NW 13th street for two years. She listens to a wide variety of music — which comes in handy when the shop hosts open mic night. She’s not always in Gainesville, but when she is, she makes Coffee Culture her coffee house of choice. Meet your barista, Caitlyn Vinci:
+Caitlyn Vinci, 22, has been a barista at Coffee Culture on NW 13th street for two years. She listens to a wide variety of music, which comes in handy when the shop hosts open mic night. She’s not always in Gainesville, but when she is, she makes Coffee Culture her coffee house of choice. Meet your barista, Caitlyn Vinci:
 
 Q. Why Coffee Culture? What makes it different? 
 A. I would say the coffee’s really good and really cheap, and all the people here are really friendly, and the service here is awesome.
 
 Q. What’s your best part about working at Coffee Culture? 
-A. The best part about working here is getting to make coffee for a living and getting to work with really awesome people. And the customer base is really cool, too.
+A. The best part about working here is getting to make coffee for a living and getting to work with really awesome people. And the customer base is really cool too.
 
 Q. What’s the worst part about working at Coffee Culture? 
 A. Honestly, there’s really no bad part, but I would say just having a job where you have to deal with the public is probably the worst part.
 
 Q. It’s a customer’s first time. What do you recommend? 
-A. It depends on what you like. If you like sweet drinks, we have a lot of flavored lattes that are really good. We also have monthly specials every month that are good to try. And if you don’t like drinks that are sweet, I would suggest my favorite drink, which is an Americano.
+A. It depends on what you like. If you like sweet drinks, we have a lot of flavored lattes that are really good. We also have monthly specials that are good to try. And if you don’t like drinks that are sweet, I would suggest my favorite drink, which is an Americano.
 
 Q. What’s the most popular drink? 
 A. It’s hard to say because people order so many different things, but I would say probably the vanilla latte and just regular coffee.
@@ -288,7 +289,7 @@ Q. What’s a normal day like at Coffee Culture?
 A. A normal shift is pretty much: you come in, you start serving coffee, you get done with your side work and just listen to whatever music you want. It’s chill. It’s really nice. It’s not stressful. There’s not anybody here that I’m disappointed to work with. It’s all pretty much awesome.
 
 Q. What’s the weirdest thing that has happened at Coffee Culture? 
-A. Well, one time we had some drunk guy run over our drive through sign, our exit sign. That was a little strange, and he came back later and we had to call the police.
+A. Well, one time we had some drunk guy run over our drive-through sign, our exit sign. That was a little strange, and he came back later and we had to call the police.
 
 Q. Regulars vs. first-timers? 
 A. The regulars here are really awesome. They’re really nice, down-to-earth. They just want to get their coffee and chat and hang out. It’s a rare occasion that we get a bad customer. Most of the people are really nice and cool.
@@ -301,16 +302,16 @@ Q. Is this your go-to coffee shop when you’re not working?
 A. I always go here. I mean, sometimes if I’m in a different part of town I might check out some other shops. But if I’m in Gainesville, I come here for coffee.
 
 Q. If you had to describe this coffee shop in one word, what would it be? 
-A. Extremely laid back … And delicious. 
+A. Extremely laid back … and delicious. 
 
 Q. What’s something most people don’t know about Coffee Culture? 
 A. The people who work here, we all together run the shop with the owner, and it’s just — the people who work here really care about the place. It’s not like everybody just comes to work and does a shitty job. Everybody here really cares about Coffee Culture. I think that’s what makes it special. People put themselves into the job instead of just coming to work and doing whatever.
 
 Q. Any other comments about Coffee Culture? 
-A. People should know that we have open mic on Sunday nights. Seven to 10, and it’s really awesome, and if you like music, you should definitely come check it out. 
+A. People should know that we have open mic on Sunday nights. 7 to 10 p.m., and it’s really awesome, and if you like music, you should definitely come check it out. 
 
 Q. Does that draw a big crowd? 
-A. We have been getting a big crowd lately. The sign up starts at 6:30, and lately, we’ve been doing 16 spots, and it gets filled up by 7. 
+A. We have been getting a big crowd lately. The sign up starts at 6:30 p.m., and lately, we’ve been doing 16 spots, and it gets filled up by 7 p.m.. 
 
 Q. What’s the most popular music there? 
 A. The majority would be people playing songs with acoustic guitar, maybe folk, maybe whatever covers or originals that they do. But there’s a really wide variety. A lot of comedy, a lot of poetry, a lot of music.
@@ -318,10 +319,10 @@ A. The majority would be people playing songs with acoustic guitar, maybe folk, 
 ________________________________________________________________________________________________________________________
 BARISTA INTERVIEW: VOLTA
 
-Tucked away in Downtown Gainesville, Volta Coffee Tea & Chocolate brews serves in-season, direct-trade coffee bought straight from the growers and brewed by-the-cup by the coffee shop’s dedicated baristas. Meet your Barista: Meghan Marvin, a 28-year-old Jacksonville native with a Bachelor of fine Art in Ceramics from the University of Florida.
+Tucked away in Downtown Gainesville, Volta Coffee Tea & Chocolate brews serves in-season, direct-trade coffee, bought straight from the growers and brewed by-the-cup by the coffee shop’s dedicated baristas. Meet your Barista: Meghan Marvin, a 28-year-old Jacksonville native with a Bachelor of fine Art in Ceramics from the University of Florida.
 
 Q. Why Volta? What makes it different?
-A. We have some of the best quality coffee. We only get coffee from roasters who have good relationships with the farmers and from responsibly-mindful regions. 
+A. We have some of the best quality coffee. We only get coffee from roasters who have good relationships with the farmers and from responsibly mindful regions. 
 
 Q. What’s your best part about working at Volta?
 A. The coffee, of course. What’s great is how much work goes into the shop. The owner, Anthony, he puts a lot of care and time into the shop. His priorities are the coffee; it’s not about making money. 
@@ -342,10 +343,10 @@ Q. What’s a normal day like at Volta?
 A. Well anytime we’re not making a drink for a customer, we’re taking care of the shop. We make everything in-house, even the baked goods. 
 
 Q. What’s the weirdest thing that has happened at Volta?
-A. Well, downtown Gainesville can be an unpredictable place. The craziest thing that’s happened is that someone has set the fire alarm off in the garage and we had to kick everyon out. But nothing too crazy. It’s only a coffee shop, you know?
+A. Well, downtown Gainesville can be an unpredictable place. The craziest thing that’s happened is that someone has set the fire alarm off in the garage and we had to kick everyone out. But nothing too crazy. It’s only a coffee shop, you know?
 
 Q. What’s the difference between regulars and first-timers?
-A. People who have never been here, say so. They usually look up at the board and say “oh my gosh, I’ve never been here before and I don’t know what I want.” And our Regulars. We know our regulars. We don’t have a big staff. There are only two people working at a time so we get to know them pretty well.
+A. People who have never been here, say so. They usually look up at the board and say “oh my gosh, I’ve never been here before and I don’t know what I want.” And our regulars. We know our regulars. We don’t have a big staff. There are only two people working at a time so we get to know them pretty well.
 
 Q. Is this your go-to coffee shop when you’re not working? 
 A. Yeah, oh yeah! I mean, I work here.
