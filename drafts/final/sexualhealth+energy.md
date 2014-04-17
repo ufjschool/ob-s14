@@ -17,7 +17,7 @@ That governmental support developed into [three funding streams]( http://www.sie
 
 The first two funding streams were shut down in 2010, but Title V was renewed in March of that year, and the government allocated $50 million per year in mandatory funding for 2010-2014.
 
-To get these funds, programs had to comply with an [eight-point definition of abstinence education](http://www.siecus.org/_data/global/images/FL%20Report%20-%20Sex%20Education%20in%20the%20Sunshine%20State.pdf) developed by the federal government. Here's where you'll find those legally-mandated scare tactics. According to this definition, one of the required elements of an abstinence education program is teaching that “sexual activity outside of the context of marriage is likely to have harmful psychological and physical effects.”
+To get these funds, programs had to comply with an [eight-point definition of abstinence education](http://www.siecus.org/_data/global/images/FL%20Report%20-%20Sex%20Education%20in%20the%20Sunshine%20State.pdf) developed by the federal government. Here's where you'll find those legally mandated scare tactics. According to this definition, one of the required elements of an abstinence education program is teaching that “sexual activity outside of the context of marriage is likely to have harmful psychological and physical effects.”
 
 This is a downright lie.
 
