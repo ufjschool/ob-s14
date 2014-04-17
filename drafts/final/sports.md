@@ -10,7 +10,7 @@ Two years ago, Strausa, now 24, chose to leave behind her Latvian family and her
 
 “When I saw the plane take off, it was very strange,” she said. “I thought how within a minute a life can totally change and how blessed I was to have this opportunity to start as somebody else, somewhere else.”
 
-Trying to relax on the 10-hour flight to the United States, she closed her eyes and thought about the upcoming days. In less than 24 hours, she’d be in another country and walk into her first UF art history class. And in a month, she’d lace up her spikes, slip on her orange-and-blue jersey and compete for the first time as a UF mid-distance track runner. 
+Trying to relax on the nine-hour flight to the United States, she closed her eyes and thought about the upcoming days. In less than 24 hours, she’d be in another country and walk into her first UF art history class. And in a month, she’d lace up her spikes, slip on her orange-and-blue jersey and compete for the first time as a UF mid-distance track runner. 
 
 “Energy is more in the mind than in the body,” she said. “It’s not so much about how you fuel yourself and your body but more like how your attitude is.”
 
