@@ -50,7 +50,7 @@ With no former performing experience, troupe member Formaldehyde Flower found he
 
 With so much anticipation for the clothes to come off in a strip tease, the audience may not realize how much work goes into creating the elaborate costumes. The Madams cultivate a do-it-yourself culture by making these together at the weekly “stitch and bitch,” where they meet at someone’s house to work on their next ensembles and share what’s happening in their lives over rind stones, hot glue and wine.
 
-They turn household items into props and bedazzle old shoes and lingerie to give costumes that desired sparkle. Dita Von Teese, currently the world’s most iconic burlesque star known for her girl in the glass act, has her set pieces encrusted with Swarovski crystals. Costumes can get expensive quickly if a performer doesn’t use at least some home-made pieces.
+They turn household items into props and bedazzle old shoes and lingerie to give costumes that desired sparkle. Dita Von Teese, currently the world’s most iconic burlesque star known for her girl in the glass act, has her set pieces encrusted with Swarovski luxury crystals. Costumes can get expensive quickly if a performer doesn’t use at least some home-made pieces.
 
 “The quote in the industry is ‘the difference between strip club stripping and burlesque is in strip club stripping you’re making $300 in a $30 outfit while in burlesque you’re making $30 in a $300 outfit,'” Flower said.
 
