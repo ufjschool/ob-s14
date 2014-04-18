@@ -94,3 +94,22 @@ In the pitch-black Philadelphia evenings, with only running shoe reflectors as h
 
 “When I start to think I’m crazy for choosing to continue training alongside my future career goals, I think about the fact that I am running with all people who make the effort to keep running as a part of their life because it makes them happy,” she said. “I have been so lucky to find role models and supportive friends who have shown me that it can be done.”
 
+##Photo Captions
+
+Moore1.jpg
+Christine Moore, 19, a computer science freshman at UF, blocked the volleyball for her teammate, Grace Patterson, at the Cocoa Beach Pier when they competed for a spot at the 2012 AAU junior nationals beach volleyball championships.
+
+Spikes.jpg
+According to an article published in January, ESPN cited data from the National Collegiate Athletic Association (NCAA) that, “Suicide was the third-leading cause of death of student-athletes from 2004-08, after accidents and cardiac causes.”
+
+Steel1.jpg:
+After overcoming an eating disorder, Laura Steel competed for the University of Pennsylvania her senior year at the 2012 Ivy League Outdoor Track Championships. She competed in the 3000-m run, running a personal-best time of 9:43 and placing ninth.
+
+Steel 2:
+With the help of a doctor, nutritionist, counselor, and her friends and family, Steel was able to overcome her eating disorder and is able to enjoy not just her sport, but also her life. 
+
+Steel 3:
+After graduating from the University of Pennsylvania in 2012, Steel competes for the Bryn Mawr Running Company and is currently training for the 2014 Boston Marathon.
+
+Team.jpg:
+The support of coaches and teammates is a crucial aspect in overcoming both mental and physical challenges in sports.
