@@ -1,6 +1,14 @@
 ###A Tale of Two Drag Queens
 ####Finding Strength and Identity Through Performance
 
+Drag is many things: an art form, a lifestyle, a statement. Most of all, it’s unique to each person who does it, and it means something different to every individual. It is a choice you make about your identity and how you want to present it to the world. 
+
+Usually, being yourself is not a decision you make once, but one that you have to make over and over again. Doing so might be as simple as resolving to speak your mind more often - or it might mean creating an alter ego and getting on stage to perform for a crowd. 
+
+I sat down with Chastity Rose and Jazzmine Divine, drag queens at the University Club, to get their perspectives on reconciling different parts of their identity and what drives them to perform. 
+
+*
+
 At 5:30 p.m. on a rainy Wednesday, the University Club is dim and deserted. Chastity Rose opens the bar at 5 p.m., so I meet her there, upstairs, where there are only two or three other people and the quiet background noise of the TV screen playing a movie I don’t recognize.  
 
 Chastity leads me into the dressing room at the back of the second floor. It’s a clean, compact space, with mirrors on every wall that reflect the harsh yellow light. At 6’1”, Chastity towers over me, but the difference disappears when we perch side-by-side on the counter. I ask her to tell me about herself: her life, her goals, her family, her job. Chastity bartends at the UC, but she also performs as a drag queen.
