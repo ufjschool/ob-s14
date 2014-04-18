@@ -62,9 +62,7 @@ It took three years for Bright to feel comfortable enough to return to the RAD c
 
 “RAD has been my therapy, the only time I worked through the emotions, because I didn’t have to say anything,” Bright said. “I hit something and it’s pretty nice.”
 
-For women who have survived acts of violence, taking the R.A.D. course can be as therapeutic as it is practical. 
-
-Part of being an instructor is observing the women in class to see if they are uncomfortable or need encouragement because of a past incident, Lamb said.
+For women who have survived acts of violence, taking the RAD course can be as therapeutic as it is practical. Lamb said part of being an instructor is observing the women in class to see if they are uncomfortable or need encouragement because of a past incident.
 
 “Some women will never need to be there because of the class,” Lamb said. “For others who have been there it gives them a victory, some confidence to move forward and help put down that emotional burden they’ve been carrying around.”
 
