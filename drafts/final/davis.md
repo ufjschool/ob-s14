@@ -105,10 +105,10 @@ According to an article published in January, ESPN cited data from the National 
 Steel1.jpg:
 After overcoming an eating disorder, Laura Steel competed for the University of Pennsylvania her senior year at the 2012 Ivy League Outdoor Track Championships. She competed in the 3000-m run, running a personal-best time of 9:43 and placing ninth.
 
-Steel 2:
+Steel2.jpg:
 With the help of a doctor, nutritionist, counselor, and her friends and family, Steel was able to overcome her eating disorder and is able to enjoy not just her sport, but also her life. 
 
-Steel 3:
+Steel3.jpg:
 After graduating from the University of Pennsylvania in 2012, Steel competes for the Bryn Mawr Running Company and is currently training for the 2014 Boston Marathon.
 
 Team.jpg:
