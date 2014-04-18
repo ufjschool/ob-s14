@@ -54,6 +54,6 @@ They turn household items into props and bedazzle old shoes and lingerie to give
 
 “The quote in the industry is ‘the difference between strip club stripping and burlesque is in strip club stripping you’re making $300 in a $30 outfit while in burlesque you’re making $30 in a $300 outfit,'” Flower said.
 
-Like conceptualizing the act, creating the costumes is a labor of love for the Madams. While they may get different things out of performing, each Mischievous Madam has had her life changed for the better by discovering burlesque. Bravely completing a strip tease for an audience of friends and strangers has given each of them a boost of confidence and a chance to connect with themselves as well as the audience.
+Like conceptualizing the act, creating the costumes is a labor of love for the Madams. While they may get different things out of performing, each Mischievous Madam has had her life changed for the better by discovering burlesque. Bravely completing a strip tease for a group of friends and strangers has given each of them a boost of confidence and a chance to connect with themselves as well as the audience.
 
 "(The acts) are all small parts of me I don’t express outwardly," said Mischievous Madam Sally Sucre. "I am kind of shy, so it’s not typical for me to just kind of take off my clothes in front of people I don’t know. The first time I did it, it was just so empowering and enthralling that I didn’t even care how many people were there or how many people weren’t."
