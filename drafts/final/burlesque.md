@@ -6,7 +6,7 @@ A burlesque performer with the stage name Stella O’Hare removes her intricate 
 
 Basking in the glow of the audience’s cheers, she savors each moment she gets to discard a piece of her carefully assembled lingerie.
 
-Down to a lacy red-and-black bra and panty set, she conceals her body with large, white feathered fans. A carefully choreographed dance teases the audience with glimpses of her thigh or waist. She connects with her audience, looking people in the eyes and beckoning them until the crowd is frenzied.
+Down to a lacy red-and-black bra and panty set, she conceals her body with large, white feathered fans. A choreographed dance teases the audience with glimpses of her thigh or waist. She connects with her audience, looking people in the eyes and beckoning them until the crowd is frenzied.
 
 As the music crescendos, the moment everyone has been waiting for arrives. She shows (almost) all in a pair of heart-shaped pasties and a sparkling thong. For O’Hare, however, the end result is the least important part of the performance.
 
