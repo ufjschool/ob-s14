@@ -1,4 +1,4 @@
-The all-nighter – a rite of passage that’s part of the college experience. As hard as student may try to avoid staying up all night before a major exam, they still find themselves find themselves up during the early morning hours chugging caffeine to get themselves through the studying the need to get done.
+The all-nighter – a rite of passage that’s part of the college experience. As hard as students may try to avoid staying up all night before a major exam, they still find themselves up during the early morning hours chugging caffeine to get themselves through the studying the need to get done.
 
 According to GatorWell, seven to 10 hours of sleep are ideal for staying healthy and energized.  Despite the research, students still succumb to the need to stay up all night to study for an exam or write a research paper last minute, and they have different methods of beating the drowsiness.
 
