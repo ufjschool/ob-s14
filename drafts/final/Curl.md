@@ -1,3 +1,6 @@
+Headline: Running Coast-To-Coast For Clean Water
+Slug: Running + Energy + Water
+
 On the morning of January 3, 2012, Athena Papadopoulos laced up her running shoes, on Jacksonville Beach, and prepared herself for a run. She wasn’t the only one on the beach that morning who would be running, but she was the only one who planned to run 2,460 miles.
 
 The 22-year-old runner spent a year in Kenya on a mission trip and came home to America feeling a little lost. 	
