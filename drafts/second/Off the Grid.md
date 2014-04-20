@@ -1,35 +1,14 @@
-Pat Griggs laughs as he remembers hurricane season nine years ago.
-
-Any Floridian knows the feeling. Storm comes. Damage ensues. Power dies. Life stops. Mundane acts become daily struggles. Hurricanes like Katrina, Rita and Wilma created a living hell in 2005. 
-
-For Griggs, assistant librarian for the Alachua County Library, hurricane season doesn’t mean a departure from normalcy. He’s lived off the grid for 22 years. He generates his own electricity, independent from Gainesville Regional Utilities, from a four-inch well that pumps water with a 12-volt solar-powered pump and pressurizes it to his house.
-
-“The truth is that during the worst of times, significant weather events like hurricanes, I’m still producing power and I’m still taking a hot shower,” Griggs says. 
-
-Griggs isn’t the anti-establishment stereotype that going off the grid shouts. He’s a typical working-class individual whose ingenuity has him saving money and making friends, especially during high-volume storm seasons. 
-
-“During that period of time, I was very popular with my neighbors,” he says of 2005.
-
-***
-
-I lived in a modest three-bedroom, two-bath house for 12 years in Southwest Miami Dade. My parents moved from Pasadena, Calif., three months before Hurricane Andrew. The storm destroyed my father’s car and my city’s once pristine image of neon lights, palm trees and quaint suburbs. There wasn’t a city in many places.
-
-Hurricanes became a part of growing up. “Hurricane Days” meant no school, but also meant no television and no air conditioning. I’d take a day of math and science over a day with no air conditioning in muggy South Florida.
-
-Hearing Griggs reminisce about 2005, which featured three of the six most intense Atlantic Hurricanes ever, brought me back to my childhood where I’d stay up for the 11 p.m. local news just to hear school get cancelled. It brought me back to the sporting event cancellations too. 
-
-It also reminded me of the flood outside my door during Hurricane Irene—a Category 1 storm in 1999. The avocado tree that fell through my parents’ window and nearly took out my sister during Hurricane Wilma. The sheer fear Hurricane Floyd brought as the Category 5 super storm swirled away from Miami.
-
-There’s a certain comfort electricity provides. Sure, re-runs of Spongebob Squarepants do little against Mother Nature, but there’s something to be said about a hot shower and morning cartoons in a time of crisis. 
-
-Off the grid living represents more than convenience during hurricane season. That’s certainly a start, but in progressive Gainesville, Fla., the birthplace of one of America’s first Feed-in-Tariff programs, off the grid is rooted in economics, politics and American entrepreneurship.
-
-***
 Michael Thomas Stevens truly lives off-the-grid. He likes it that way. He’s impossible to contact. His only interviews online are to alternative websites. Heck, he doesn’t go by Michael. He prefers Mycol (more on that later).
 
 It’s a coup to arrange an interview with this self-described child of the woods who lived in suburban Cleveland as a child and attended high school in Sarasota, Fla., and now has a homestead in Brooker, Fla. where the sun and the birds are his morning alarm. 
 
-Photographer Bakr Muhammad and I depart from the Foxmoor Condominiums off 19th Ave. at 8:30 a.m. for a March 29 meeting at Steven’s Finca Mycol farm. That’s Mycol’s Farm in Spanish. We don’t know what to expect. All I have is information gathered from telephone interviews with Griggs, Alachua County Commissioner Mike Byerly and the President of Pure Energy Solar Wayne Irwin. All of who generate their own power independent of Gainesville Regional Utilities. 
+Photographer Bakr Muhammad and I depart from a Gainesville, Fla., apartment complex at 8:30 a.m. for a March 29 meeting at Steven’s Finca Mycol farm. That’s Mycol’s Farm in Spanish. We don’t know what to expect. All I have is information gathered from telephone interviews with Alachua County librarian Pat Griggs, Alachua County Commissioner Mike Byerly and the President of Pure Energy Solar Wayne Irwin. All of who generate their own power independent of Gainesville Regional Utilities, which powers the progressive college town.
+
+Griggs laughs as he remembers hurricane season nine years ago. Any Floridian knows the feeling. Storm comes. Damage ensues. Power dies. Life stops. Mundane acts become daily struggles. Hurricanes like Katrina, Rita and Wilma created a living hell in 2005. 
+
+“During that period of time, I was very popular with my neighbors,” he says of 2005.
+
+For Griggs, assistant librarian for the Alachua County Library, hurricane season doesn’t mean a departure from normalcy. He’s lived off the grid for 22 years. He generates his own electricity, independent from Gainesville Regional Utilities, from a four-inch well that pumps water with a 12-volt solar-powered pump and pressurizes it to his house.
 
 Byerly and his wife Busy Shires Byerly built their solar home in Micanopy, Fla., three years ago with the environment in mind. They worked with a contractor to build a house equipped with solar power capabilities. Byerly remembers arguing with a GRU worker, walking along his street, debating which trees to ultimately cut down for a power line. He decided against tying into GRU in order to keep the trees.
 
@@ -39,7 +18,7 @@ Finca Mycol is no normal place.
 
 ***
 
-The navigation system in my olive green Honda 2007 CR-V reads 30 minutes, but judging by the surroundings it’s much longer. Three solar panels ironically sit in the field of Westwood Middle School on 34th street. The road veers off to the right about 10 minutes later as businesses disappear and pine trees appear along the two-lane State Road 231. Cell phone service goes out. An armadillo, still fresh, lies off to the side.
+The navigation system in my Honda 2007 CR-V reads 30 minutes, but judging by the surroundings it’s much longer. Three solar panels ironically sit in the field of Westwood Middle School on 34th street. The road veers off to the right about 10 minutes later as businesses disappear and pine trees appear along the two-lane State Road 231. Cell phone service goes out. An armadillo, still fresh, lies off to the side.
 
 The cement turns into a dirt road straight from a Wes Craven movie. University Avenue at the University of Florida represents First Avenue. Finca Mycol is in the 200s. 
 
@@ -53,17 +32,15 @@ A work area, with a metal roof, wooden support beams and no walls, is straight a
 
 He’s not rocking the dreadlocks from a 2011 story in the alternative publication Elephant Journal. He’s got a graying beard that’s a cross between George Clooney and Tom Hanks in “Castaway. He’s rocking a fading red button down shirt with black geometric shapes in no particular pattern. He’s wearing olive green cargo shorts to go along with his black Crocs. And he’s eating a banana.
 
-I begin asking questions. Goats call in unison. Birds chirp. It’s not yet 10 a.m. One goat call in particular doesn’t sound right. A bubbly woman in her mid-20s comes towards us from a walking trail. That’s Kricket Stevens’ girlfriend. Certainly an interesting greeting from the two. Rain falls. My notebook and recorder get wet. Kricket offers me a black umbrella.
+I begin asking questions. Goats call in unison. Birds chirp. It’s not yet 10 a.m. One goat call in particular doesn’t sound right. A bubbly woman in her mid-20s comes towards us from a walking trail. That’s Kricket, Stevens’ girlfriend with certainly an interesting greeting from the two. Rain falls. My notebook and recorder get wet. Kricket offers me a black umbrella.
 
-I’m a college student who hadn’t thought of self-sustainable living before taking on the story and him a UF graduate with a Masters at UF’s Center for the Wetlands. He knows everything there is to know about living on his own.
+I’m a college student who hadn’t thought of self-sustainable living before taking on the story and him a UF graduate with a Masters at UF’s Howard T. Odum Center for the Wetlands. He's an expert about living on his own.
 
 ***
 
-Stevens grew up in the suburbs of Cleveland, Ohio, where smoke stacks dot the skies. An appropriate backdrop to its sports run of bad luck—Cleveland Browns’ 11-year playoff hiatus, LeBron James’ “The Decision,” and the Cleveland Indians’ 54-year World Series win drought (The Indians lost on a walk-off single by the Marlins’ Edgar Renteria to score Craig Counsell in their last World Series appearance in 1997. The moment, captured as the cover of The Miami Herald, is hanging in my room back home.)
+Stevens grew up in the suburbs of Cleveland, Ohio, where smoke stacks dot the skies. Cleveland is an industrial city—a symbol of pure Americana when such a thing existed during the manufacturing boom of the 1950s.  It, along with Ohio’s other “big eight” cities, started as an automotive power until dabbling in other sectors such as medical research. Hard economic times led to a 17.1 percent population decrease from 10 years earlier in 2010. Cleveland ironically exposed Stevens to his first experience with nature.
 
-Cleveland is an industrial city—a symbol of pure Americana when such a thing existed during the manufacturing boom of the 1950s.  It, along with Ohio’s other “big eight” cities, started as an automotive power until dabbling in other sectors such as medical research. Hard economic times led to a 17.1 percent population decrease from 10 years earlier in 2010. Cleveland ironically exposed Stevens to his first experience with nature.
-
-He lived with the middle child syndrome. Not coddled enough like the first born and not paid as much attention too as the new baby. Stevens loved it. He explored. He wandered. He discovered.
+He lived with middle child syndrome. Not coddled enough like the first born and not paid as much attention too as the new baby. Stevens loved it. He explored. He wandered. He discovered.
 
 Stevens found an old small-scale farm as a child roaming the woods near his house. The deserted farm was his jungle gym. He made a fort. He grew fresh plums, apples and concord grapes. He was in “hog heaven” getting his hands dirty from black walnuts. He honed his craft.
 
@@ -73,7 +50,7 @@ His Conservative family moved to Sarasota, Fla., when Stevens turned 13. Stevens
 
 “Nobody gives a shit about the environment. Especially the youth, because we’re so disconnected with our hyper little phones. Nobody gives a shit about growing food. You just go buy plastic processed products.” 
 
-I point out that I’m using a plastic digital recorder as we’re talking. He calls it appropriate technology and says he uses a laptop, drives to the supermarket and uses his Kricket’s cell phone. He recently bought materials to brew his own beer. Stevens continues recounting his journey to Finca.
+I point out that I’m using a plastic digital recorder as we’re talking. He calls it appropriate technology and says he uses a laptop, drives to the supermarket and uses Kricket’s cell phone. He recently bought materials to brew his own beer. Stevens continues recounting his journey to Finca.
 
 “I graduate college so what am I going to do? Well, I tried to save the world,” Stevens says. “I tried to teach about having natural systems, so we can clean up all this waste. Then, I got really sick.”
 
@@ -93,23 +70,23 @@ Byerly, a Democrat, noticed the environmentally focused mindset even before gett
 
 Gainesville Regional Utilities, or GRU, brought the city national attention with the nation’s first solar Feed-in-Tariff program on Feb. 5, 2009. Byerly, as an Alachua County Commissioner, didn’t have any involvement in the plan. Gainesville county commissioners suspended the program this year. 
 
-It modeled itself after the successful FiT plans in Europe where companies bid on solar energy contracts, generate electricity and sell back excess power back to the power utility. In theory, it would be a boon for Gainesville. In practice, it was the ‘ole college try.
+It modeled itself after the successful FiT plans in Europe where companies bid on solar energy contracts, generate electricity and sell excess power back to the power utility. In theory, it would be a boon for Gainesville. In practice, it was the ‘ole college try.
 
-The tariff was designed to supersede an expected power shortage. It also intended to minimize costs, promote energy-efficient practices and create jobs, according to a Harvard study. That didn’t happen because of several reasons. The study outlined one key issue of out-of-state companies bidding on larger contracts, which took up too much of the allotted power and cash payouts intended for Gainesville citizens who could only muster smaller contracts. Big money ended up killing the pioneer program in an industry that has gained traction in the city.
+The tariff was designed to supersede an expected power shortage. It also intended to minimize costs, promote energy-efficient practices and create jobs, according to a Harvard study. That didn’t happen because of several reasons. The study outlined one key issue of out-of-state companies bidding on larger contracts, which took up too much of the allotted power and cash payouts intended for Gainesville citizens who could only muster smaller bids. Big money ended up killing the pioneer program in an industry that has gained traction in the city.
 
 “The feed-in-tariff I thought was a great way to encourage and incentivize solar use and production, and disperse some of GRU’s energy production to off grid instead of burning coal or biomass,” Byerly says. “It was of negligible cost to the taxpayers and really expanded production of solar energy in the Gainesville area. There’s some job growth in the industry in that area now. I’m sorry to hear that they’re not continuing that.”
 
 ***
 
-Stevens doesn’t have to worry about bureaucratic bologna. He represents one end of the off-the-grid spectrum. He’s not doing in preparation for Armageddon. He’s strictly about environmental preservation. Many people like my family, especially in today’s buzzword crazy culture, have some sort of solar panels on their roof generating power to eventually decrease utility costs. It’s solar-grid tied.
+Stevens doesn’t have to worry about bureaucratic bologna. He represents one end of the off-the-grid spectrum. He’s not doing it in preparation for Armageddon. He’s strictly about environmental preservation. Many people like my family, especially in today’s buzzword crazy culture, have some sort of solar panels on their roof generating power to eventually decrease utility costs. It’s solar-grid tied.
 
-Byerly, Griggs and Irwin are independent of GRU, but still use more energy than Stevens who’s independent of just about everybody. He hasn’t had working electricity at Finca Mycol for seven to eight years. Volunteers come and go helping him tend to the various problems. They come mainly from the Worldwide Opportunities on Organic Farms, which pair volunteers with host farms. Stevens could write a book of the mistakes he’s made. They don’t teach off the grid living in school.
+Byerly, Griggs and Irwin are independent of GRU, but still use more energy than Stevens who’s independent of just about everybody. He hasn’t had working electricity at Finca Mycol for seven to eight years. Volunteers come and go helping him tend to the compound's various problems. They come mainly from the Worldwide Opportunities on Organic Farms, which pair volunteers with host farms. Stevens could write a book of the mistakes he’s made. They don’t teach off the grid living in school.
 
 I ask Stevens why go to such great lengths for his energy independence. His family members besides his younger sister have deemed him too far out of the way to visit. He can go the energy-efficient fluorescent light bulb route with all the cliché “green practices.” He can adopt the off-the-grid practices of somebody like Byerly. He chooses not too. The original $42,000 has paid itself off over and over.
 
 That’s not why though. He takes me to another living quarters that doubles as his office. There’s a chalkboard that lists his “daily thangs” to do. There’s a mattress on the floor and a small van connected to the outdoor room.
 
-He points to a black and white poster tacked to the wall. Stevens purchased the poster at a talk given by the Beehive Collective at Gainesville’s Civic Media Center. The group is a “wildly motivated, all-volunteer, activist arts collective dedicated to cross-pollinating the grassroots by creating collaborative, anti-copyright images for use as educational and organizing tools,” according to its website.
+He points to a black and white poster tacked to the wall. Stevens purchased the poster at a talk given by the Beehive Collective at Gainesville’s Civic Media Center. The group verbosely describes itself as a “wildly motivated, all-volunteer, activist arts collective dedicated to cross-pollinating the grassroots by creating collaborative, anti-copyright images for use as educational and organizing tools,” on its website.
 
 The poster depicts a forest overtaken by industry with semis extracting coal atop a mountain, factories blowing smoke in the background and an industrialized city mitigating the damage by carrying out cliché green practices. To some, celebrating Earth Day is enough, but that’s just the beginning for Stevens.
 
@@ -127,7 +104,7 @@ I walk into a gated area of the pen where six car batteries are connected to wir
 
 An airplane propeller collects dust in a top shelf. It will be a wind turbine. Why do people need a bigger system? 
 
-“You get these nice toys and we’re spoiled. You want to be like the Joneses. You always want to be bigger and better. The typical America way I guess.” 
+“You get these nice toys and we’re spoiled. You want to be like the Joneses," he says. "You always want to be bigger and better. The typical America way I guess.” 
 
 ***
 
@@ -135,13 +112,13 @@ The Mycol Stevens way is a simple one. Focus on perma culture, planting more tha
 
 He created the Florida Earthskills Gathering, which is a seminar dedicated to teaching self-sustaining skills. It’s a four-day workshop of overnight revelry and intensive learning. He hosts educational field trips at the farm where children get away from the concrete playground of Disney World and into the world of nature. Stevens teaches at the Florida Herbalism Conference and the Hostel in the Forest.
 
-Stevens tells me as we venture from the pen to his pond that he prefers Mycol to his birth name Michael. Those scientifically inclined might recognize what mycol stands for—mycology, which is the study of mushrooms. He rattles off scientific names. All I know is portabella and psychedelic.
+Stevens tells me as we venture from the pen to his pond that he prefers Mycol to his birth name Michael. Those scientifically inclined might recognize that mycol comes from mycology, which is the study of mushrooms. He rattles off scientific names. All I know is portabella and psychedelic.
 
 With the rain stopping, he picks up a green leaf. It looks like any normal leaf. He smells it. Then, identifies it as Chenopodium Ambrosoides. In other words, a Mexican Tea leaf. 
 
-He must really know his shit now, I think to myself. Our time together dies down, as does the rain. Bakr trails behind me snapping photos. Suddenly, lightning and thunder force us into a brisk walk and then a run into his living quarters. 
+He must really know his stuff now, I think to myself. Our time together dies down, as does the rain. Bakr trails behind me snapping photos. Suddenly, lightning and thunder force us into a brisk walk and then a run into his living quarters. 
 
-I put away my notebook. I want to listen to the knowledge. I want to hear more stories about black bears, duck, deer, otters and skunks venturing onto the property. He opens a botany book to a page on earambola, which is science talk for a central China plant. His favorite read is the famous ethno-botany book “One River,” by Wade Davis. Between tending to his farm and dealing with electrical issues, there isn’t much free time. He doesn’t spend it watching House of Cards. He reads botany books.
+I put away my notebook once inside. I want to listen to the knowledge. I want to hear more stories about black bears, duck, deer, otters and skunks venturing onto the property. He opens a botany book to a page on earambola, which is science talk for a central China plant. His favorite read is the famous ethno-botany book “One River,” by Wade Davis. Between tending to his farm and dealing with electrical issues, there isn’t much free time. He doesn’t spend it watching "House of Cards." He reads botany books.
 
 He reveals that he was a nuclear power operator in the Navy for six years and likes how environmental friendly nuclear energy is when done right. This man, at 44, is full of stories. I’m exhausted.
 
@@ -149,8 +126,9 @@ He reveals that he was a nuclear power operator in the Navy for six years and li
 
 ***
 
-Bakr and I head to the car as the rain subsides. I enjoyed the hour-and-a-half at Finca Mycol. I learned about one off-the-grid option. It provided perspective as well. If Stevens shies away from technology and outside communication, I sure as heck can wean off my iPhone.
+Bakr and I head to the car as the rain subsides. I enjoyed the hour-and-a-half at Finca Mycol. I learned about one off-the-grid option that provided perspective as well. If Stevens shies away from technology and outside communication, I sure as heck can wean off my iPhone.
 
-We’re driving on the dirt road we arrived to the farm on when I spot a massive tree that fell over during the storm. It’s blocking our path. I make a left around the tree in my CR-V. There’s no road for me to drive on. We’re not moving.
-My left tire is stuck in the mud. I instinctively push on the gas only to dig us deeper in this muddy mess. I whip out my iPhone to call a tow truck. No service. Fuck. Having spent the morning with Stevens, I ask myself what he’d do in this situation. I laugh. He’d just get it out himself. Bakr, on top of the hood, pushes the car back. I step on the gas. He gets in the car. We start driving home.
+We’re driving on the dirt road when I spot a massive tree that fell over during the storm. It’s blocking our path. I make a left around the tree. There’s no road for me to drive on. We’re not moving.
+
+My left tire is stuck in the mud. I instinctively push on the gas only to dig us deeper in this muddy mess. I whip out my iPhone to call a tow truck. No service. Great. Having spent the morning with Stevens, I ask myself what he’d do in this situation. I laugh. He’d just take care of it himself. Bakr, leaning on the hood, pushes the car back. I step on the gas. He gets in the car. We start driving home.
  
