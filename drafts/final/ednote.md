@@ -1,6 +1,6 @@
 Back in high school, you probably learned equations and forms of energy. A bunch of letters, exponents and fractions somehow come together to equal how things in our lives move.  
 
-Kinetic energy equals \begin{smallmatrix} \frac{1}{2}mv^2 \end{smallmatrix}
+Kinetic energy equals 1/2mv^2 (Make that an exponent, please!) 
 
 Potential energy equals m · g · h 
 
