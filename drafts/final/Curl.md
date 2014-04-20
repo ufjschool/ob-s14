@@ -1,5 +1,6 @@
 Headline: Running Coast-To-Coast For Clean Water
-Slug: Running + Energy + Water
+Suggestion from Devon: Girl on the Run 
+Slug: Running + Energy 
 
 On the morning of January 3, 2012, Athena Papadopoulos laced up her running shoes, on Jacksonville Beach, and prepared herself for a run. She wasn’t the only one on the beach that morning who would be running, but she was the only one who planned to run 2,460 miles.
 
