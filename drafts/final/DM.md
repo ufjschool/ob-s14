@@ -16,7 +16,7 @@ When considering the energy behind the morale team, one cannot ignore the passio
 		
 Waksman’s passion and energy toward the cause convinced her that she was meant to stay another year in Gainesville to lead the Dance Marathon at UF morale team and raise money for the children she had grown to love over her previous four years at UF. 
 		
-To Waksman, a miracle child is, “an incredible spirit who constantly gives us inspiration to keep driving forward and doing the best we can to make miracle happen.”
+To Waksman, a miracle child is, “an incredible spirit who constantly gives us inspiration to keep driving forward and doing the best we can to make miracles happen.”
 
 Members of the morale team as well as other students involved in Dance Marathon get their energy to keep pushing forward throughout the 26.2 hours through the inspiration of the miracle children.  
 		
@@ -28,7 +28,7 @@ Members of the morale team for Dance Marathon at UF begin exerting their energy 
 	
 Everyone can spot the morale team throughout the entire 26.2 hours of Dance Marathon. They are the captains decked out in colorful and elaborate costumes planned out days and sometimes weeks in advanced. They are the energy that flows through the veins of Dance Marathon. 
 		
-Every hour, when the opening song of the line dance begins, everyone knows they will be inspired to keep standing for the children in need, because the morale team always brings the energy. Morale team members inspire the dancers to keep dancing by leading them in the line dance they created for the event. 
+Once every so often, when the opening song of the line dance begins, everyone knows they will be inspired to keep standing for the children in need, because the morale team always brings the energy. Morale team members inspire the dancers to keep dancing by leading them in the line dance they created for the event. 
 		
 But, what keeps this team of student leaders energized? How can you find them at the end of the event with smiles on their faces just as big and wide as their smiles were when the event started? If you ask Soma Nwokolo, 23, student at UF Law and third year morale team member, the answer is simple. The morale team members motivate each other to keep their spirits high.  
 		
