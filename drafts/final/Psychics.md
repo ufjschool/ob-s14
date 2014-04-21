@@ -93,12 +93,13 @@ Green assists in balancing the energy field in one’s body, also commonly known
 
 “The advantage to that, is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
 
-Green received her RN at Seminole State College in 1983. She became certified in Healing Touch in 2010 while working on her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
+Green received her RN at Seminole State College in 1983. She became certified in healing touch, a form of energy medicine that balances the human energy system, in 2010. The American Holistic Nurses Association accredits it. It’s used in hospitals, nursing homes and cancer centers. She also received her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
+
 From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old when she first realized she was sensitive to noise. By the time she was 3 or 4 years old, she started going to birthday parties and couldn’t stand the children screaming and yelling while playing. She was highly emotional and sensitive to the children around her. 
 
-Green was also hypersensitive to sounds and light. Flash photography felt like it was the death of her, so she had to wear sunglasses. Her eye doctor told her it was not likely, because she had dark eyes that provide more protection from light. 
+She was also hypersensitive to sounds and light. Flash photography felt brighter than the sun, so she had to wear sunglasses. Her eye doctor told her it was not likely for her to be so sensitive to light, because she had dark eyes that provide more protection from light.  
 
-When she was 10, her father passed away. It was a turning point in her abilities to some degree, but she regained her strength and got stronger when she was 12. By the age of 12, Green she started to see energy around things, an ability known as clairvoyance. She was also able to hear the energies around her, known as clairaudience. 
+When she was 10, her father past away. She thought she was being watched. By the age of 12, Green she started to see energy around things, an ability known as clairvoyance. She was also able to hear the energies around her, known as clairaudience.  
 
 This ability was something she understood later on in life as functioning on a higher frequency level. Today it’s referred to as HSP, higher sensory perception. 
 
@@ -112,7 +113,7 @@ A lot of people in her family were very open-minded and knew each of them had a 
 
 Green does not pay much mind to the skeptics. She doesn’t just believe in what she does, she knows of what is real and validated. Skeptics give her an opportunity to show them something they might have never been open to.
 
-“Everyone is entitled to he or her own opinion,” Green said. “I don’t want to necessarily want to change their belief—just their experience.”
+“Everyone is entitled to he or her own opinion,” Green said. “I don’t want to necessarily change their belief—just their experience.”
 
 Susan Provda, a client of Green, was not skeptical before her first visit. She was just someone in dire pain after two back surgeries looking for Green’s help. After hearing about Green from a friend, Provda decided to see her. She went to the Green’s Apopka Wellness Center in Apopka, Fla., where she was comforted by light talk about her medical history and progressive relief after visiting three more times for back therapy. 
 
@@ -122,7 +123,7 @@ Provda said the experience was very professional. She lay down as Green used a c
 
 While using a crystal pendulum to assess the person’s energy field, Green works with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. It is the oldest form of medicine, she said.
 
-“It is the ultimate cellphone connection,” Green said.
+“It is the oldest form of medicine,” Green said. "It is the ultimate cellphone connection."
 
 Green also does grief work because many departed loved ones make their presence known to her to help their families who are still grieving.
 
@@ -138,6 +139,6 @@ A type of nonproductive thought pattern is experienced by people who live in fea
 
 The most powerful part of our bodies is our higher consciousness. It is soul-driven and will not steer us wrong if we learn to tune into it. The energy field compromises everything: the mind, body and soul. It takes care of our physical and non-physical, she said. A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
 
-Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. On her down time, Green works at the Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband, three children and her 85-year-old mother. She anticipates writing another book in a couple of years. 
+Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. On her down time, Green works at the Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband, Adlai; three children, Ian, Arielle and Alexa; and her 85-year-old mother, Harriet Storyk. She anticipates writing another book in a couple of years.
 
 “We are amazing beings with all the answers within ourselves to lead a healthy and productive life,” Green said. 
