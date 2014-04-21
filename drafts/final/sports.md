@@ -150,7 +150,7 @@ So Greene set a goal for Yeguete: lose weight.
 
 Greene's training program didn't just work for the athlete, it excelled. Yeguete was a starting forward for most of the 2013-2014 season and racked up about  900 minutes and about 200 rebounds.
 
-With the Gators finishing the season as SEC champions and making it to the Final Four in the NCAA tournament, Greene couldn't be happier. His enthusiasm is a staple for the team — win or lose.
+With the Gators finishing the season as SEC champions and making it to the Final Four in the NCAA tournament, Greene couldn't be happier. His enthusiasm, however, is a staple for the team — win or lose.
 
 “One way I’ve been successful is I’m very, very energetic and very passionate about what we do," he described. "So when my guys come in to train, they tend to feed off my energy. When they come in, I’m ready to go right off the bat.”
 
@@ -164,7 +164,7 @@ And greatness is expected.
 
 Everyone includes former Gator athletes who have gone on to play in the NBA — guys like Joakim Noah, Bradley Beal and Chandler Parsons.
 
-"They see these guys come back and work and that really hits home with our young guys," Greene noted. "It’s like, ‘Hey! OK, these guys are not just talented. They work to be successful.’”
+"They see these guys come back and work, and that really hits home with our young guys," Greene noted. "It’s like, ‘Hey! OK, these guys are not just talented. They work to be successful.’”
 
 For the freshmen, the seniors spread the message, set a good example and amp up the energy.
 
