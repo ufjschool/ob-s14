@@ -1,11 +1,11 @@
-The all-nighter: a rite of passage that’s part of the college experience. As hard as students may try to avoid staying up all night before a major exam, they still find themselves up during the early morning hours chugging caffeine to get themselves through studying.
+The all-nighter: a rite of passage that’s part of the college experience. As hard as students may try to avoid staying up all night before a major exam, they still find themselves up during the early morning hours, chugging caffeine to get themselves through studying.
 
 According to UF's health promotion service, GatorWell, seven to 10 hours of sleep are ideal for staying healthy and energized. Despite the research, students continue to pull all-nighters to finish up research papers, and they have different methods of beating the drowsiness.
 
 Sarah Gaies doesn't like to stay awake all night studying, but she said it does happen. The 20-year-old said she once stayed up until 8:30 a.m. because she had to write a paper. She never acquired a taste for coffee and doesn't like the artificial taste of energy drinks, describing them as “plastic-y.”  Instead, the health science sophomore prefers to eat chocolate. 
  “It keeps me awake," Gaies said, "and I like having it as a reward.”
 
-Jane Emmerée, a health promotion specialist at GatorWell, listed a few of the effects of bad sleeping habits: diabetes, blood pressure problems, a weakened immune system. Relationships are also affected by making people more irritable. Safety on the road is also at stake because tiredness affects driving abilities.
+Jane Emmerée, a health promotion specialist at GatorWell, listed a few of the effects of bad sleeping habits: diabetes, blood pressure problems, and a weakened immune system. Relationships are also affected by making people more irritable. Safety on the road is at stake too because tiredness affects driving abilities.
 
 Consuming caffeine can have adverse effects on sleeping patterns, in general, according to GatorWell.  Coffee contains anywhere between 100 and 350 mg of caffeine.  Chocolate, on the other hand, has about eight mg per ounce.  Even pain relievers like Midol can have caffeine in them and affect sleep.
 
@@ -19,13 +19,13 @@ Emmerée said a common myth among the general population is people can make up t
 
 Another myth that exists is sleep deprivation doesn’t affect health.
 
-“Sleep should be as important as healthy eating and exercise in your life,” the GatorWell specialist said, “as important as your social life.”
+“Sleep should be as important as healthy eating and exercise in your life,” the GatorWell specialist said. “As important as your social life.”
 
 Having a regular routine for sleep is as important as getting enough sleep.
 
 “Students tell me they stay up till 3 or 4 [a.m.] on Fridays because they’re socializing,” Emmerée said.  “I’m not telling you to be rigid.” 
 
-Emmerée is an advocate for naps, but she said people need to look at their reasons for taking naps. They should be supplemental rather than a replacement for a good night’s rest. Also, naps shouldn’t last for more an hour. 
+Emmerée is an advocate for naps, but she said people need to look at their reasons for taking naps. They should be supplemental rather than a replacement for a good night’s rest. Also, naps shouldn’t last for more than an hour. 
 
 “Napping may be a symptom of a poor sleep foundation,” she said. “Are you doing it because you’re exhausted or because you had a rough week?” 
 
