@@ -106,7 +106,7 @@ Gomes is just happy she can be part of the puzzle that makes a good athlete.  Jo
 
 “I love Kelsee. She’s awesome,” the gymnast said. “She works with us, and she does really well. She’s definitely been a good impact with different areas that I maybe didn’t know as much about, so it’s been really good to have her." 
 
-Before Johnson knew she would stand with her team at the end of the season with another national title, Johnson admitted she had no regrets and just wanted to have fun in her last year at Florida. She certainly had all the right tools for success. This includes the nutrition to keep her energized —something that Sarah Snyder, another sport nutritionist for UF's program, can’t stress the importance off enough.
+Before Johnson knew she would stand with her team at the end of the season with another national title, Johnson admitted she had no regrets and just wanted to have fun in her last year at Florida. She certainly had all the right tools for success. This includes the nutrition to keep her energized —something that Sarah Snyder, another sport nutritionist for UF's program, can’t stress the importance of enough.
 
 “Everybody needs a nutritionist or dietitian to guide them through,” Snyder said. “It’s a year-long season: inseason, preseason, offseason. These athletes don’t rest.”
 
