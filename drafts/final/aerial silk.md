@@ -5,7 +5,7 @@ She spends a lot of time hanging, but in a different way than most students.
 
 INSERT DSC_1900 
 
-Jana Rosen, UF master of landscape architecture student, spends her downtime graciously climbing, spinning and dropping from a silk curtain in a large tree on campus.
+Jana Rosenbloom, UF master of landscape architecture student, spends her downtime graciously climbing, spinning and dropping from a silk curtain in a large tree on campus.
 
 An art form that is considered part of circus arts, aerial silk portrays the beauty of silk wrapping around the body, allowing it to create a sense of elevated modern dance.
 
@@ -13,17 +13,17 @@ Aerial silk 6
 
 It’s not only a skill that requires strength, power, flexibility and bravery, but it’s also a talent that can only be mastered with practice and patience. 
 
-Those passing by can find Rosen, 24, on Tuesday and Thursday afternoons practicing in a tree next to the Broward Outdoor Recreation Center.
+Those passing by can find Rosenbloom, 24, on Tuesday and Thursday afternoons practicing in a tree next to the Broward Outdoor Recreation Center.
 
 “This is our tree at the moment, unless we find a better climbing tree somewhere,” she said. “We like it here because it’s relatively quiet, but we still have people walk by who come and talk to us and see what we’re doing, which is fun.”
 
 DSC_1953
 
-Rosen did gymnastics for two years when she was younger, mainly practicing in her backyard by herself. Little did she know the strength and flexibility would help her with a talent she would pursue later in life.
+Rosenbloom did gymnastics for two years when she was younger, mainly practicing in her backyard by herself. Little did she know the strength and flexibility would help her with a talent she would pursue later in life.
 
 DSC_1908
 
-When Rosen was working toward getting her undergraduate degree in sustainability and the built environment, her constant escape from endless hours working in the design studio was practicing and improving as an aerialist.
+When she was working toward getting her undergraduate degree in sustainability and the built environment, her constant escape from endless hours working in the design studio was practicing and improving as an aerialist.
 
 It all started about three years ago when she walked by and saw a UF club practicing aerial silk in the window and decided to try it herself.
 
@@ -44,13 +44,13 @@ Push-ups, pull-ups, planks and leg lifts are ideal exercises for basic condition
 
 “If you don’t do them right on the ground, when you get in the air, it’s just going to be a disaster,” she said. “If you can do the conditioning class with good form and good technique, then you can do anything.” 
 
-For Rosen, the most challenging thing about doing aerial silk at first was core strength, and she had to work on strengthening her abs to be able to do certain movements on the silk.
+For Rosenbloom, the most challenging thing about doing aerial silk at first was core strength, and she had to work on strengthening her abs to be able to do certain movements on the silk.
 
 “I play out my strengths such as flexibility and focus on those on my pieces,” she said.
 
 Aerialsilk 8
 
-Rosen recruited one of her classmates, Joseph Craig Lackey, a fourth-year UF landscape architecture student from Palm Beach Gardens, to practice with her. 
+Rosenbloom recruited one of her classmates, Joseph Craig Lackey, a fourth-year UF landscape architecture student from Palm Beach Gardens, to practice with her. 
 
 DSC_1897
 
@@ -62,7 +62,7 @@ DSC_1920, DSC_1877
 
 
 
-With the help and interest of Lackey, Rosen was able to start pursuing partner work, and she said she appreciates Lackey being her base. 
+With the help and interest of Lackey, Rosenbloom was able to start pursuing partner work, and she said she appreciates Lackey being her base. 
 
 DSC_1985
 
@@ -87,7 +87,7 @@ DSC_1876
 
 But professionals like Souza don’t intimidate the pair of aspiring artists—they inspire them. 
 
-Rosen and Lackey said they have noticed that the circus community is extremely encouraging and welcoming to new people who want to try the skills. 
+Rosenbloom and Lackey said they have noticed that the circus community is extremely encouraging and welcoming to new people who want to try the skills. 
 
 “No one ever looks down on anyone because they can’t do something,” Lackey said. “We all just want to help each other get better. If you’re an outsider and you’re coming in, it’s that welcoming feeling that you’re being invited.”
 
@@ -97,7 +97,7 @@ They said they love teaching the basic climb to people passing by who see the si
 
 DSC_1986
 
-“It’s nice to explain it to someone else, because then it solidifies it to you and you understand it better,” Rosen said.
+“It’s nice to explain it to someone else, because then it solidifies it to you and you understand it better,” Rosenbloom said.
 
 She said when people first watch her, they think it takes mostly upper body strength to pull their bodies up and are surprised to find out that it takes mostly leg strength to make their way up the silk. “It does take some arm strength, but not to the extent that it looks like,” she said.
 
