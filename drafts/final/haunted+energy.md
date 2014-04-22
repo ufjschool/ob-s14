@@ -101,7 +101,7 @@ I realized I'd just helped the legend live on.
 
 James W. Norman Hall houses the University of Florida’s College of Education, named for the man who was the college’s dean from 1920 to 1941. The naming occurred in 1958, but the building itself opened in 1934. At that time, it housed P.K. Yonge Laboratory School, and rumors abound that an incident during that time has left Norman Hall haunted ever since.
 
-“The legend is that, one day, three students got on the elevator when they weren’t supposed to,” says Larry Lansford, explaining that the old-style elevator was for faculty and staff only. “It went wrong, fell from the top to the bottom floor, and they were killed in it. So the legend is those three children are the ghosts of Norman Hall.”
+“The legend is that, one day, three students got on the elevator when they weren’t supposed to,” says Larry Lansford, director of news and communications for the College of Education, explaining that the old-style elevator was for faculty and staff only. “It went wrong, fell from the top to the bottom floor, and they were killed in it. So the legend is those three children are the ghosts of Norman Hall.”
 
 He hands me a copy of an article he wrote about the legend for the summer 2005 edition of “Education Times.” He emphasizes that there is no written record confirming the validity of the legend, but he also concedes that there are many strange stories reported around Norman Hall.
 
