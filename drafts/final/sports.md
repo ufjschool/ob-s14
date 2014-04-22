@@ -134,13 +134,13 @@ For the players, having Greene around is basically like having a personal traine
 
 And Yeguete laps it up.
 
-"I learned so much more about my body: stretching, how the stretching works, eating well," the 22-year-old expressed. "Preston knows a lot about the body, and he's good about sharing those things with us. He gives us a lot of advice about preparing our bodies for each season."
+"I learned so much more about my body: stretching, how the stretching works, eating well," the 22-year-old said. "Preston knows a lot about the body, and he's good about sharing those things with us. He gives us a lot of advice about preparing our bodies for each season."
 
 And with each season, the training program is altered as the players grow and improve. After the season is over, Greene meets with Head Coach Billy Donovan and his staff to set goals for each player. Optimal body weights are their focus.
 
 “I want my guys to be very, very lean,” Greene stressed, “because the leaner or less body fat they have, for basketball, the quicker they are and the higher they can jump. If a guy has, in my opinion, a higher body fat than I would like, then I will determine his body weight off of that." 
 
-When Yeguete enrolled at UF in 2010, a different strength and conditioning coordinator was on staff, Matt Herring. After Greene took Herring's place, the 6-foot-7 forward suffered injury after injury: concussions, a broken foot and knee problems. Last year, he underwent several arthroscopic surgeries to remove bone chips in his right knee. Once healthy and ready to hit the court again, Yeguete had to revamp his body for his final year with the team.
+When Yeguete enrolled at UF in 2010, a different strength and conditioning coordinator was on staff, Matt Herring. After Greene took Herring's place, the 6-foot-8 forward suffered injury after injury: concussions, a broken foot and knee problems. Last year, he underwent several arthroscopic surgeries to remove bone chips in his right knee. Once healthy and ready to hit the court again, Yeguete had to revamp his body for his final year with the team.
 
 “My junior year, I was heavy — top heavy," he said.
 
@@ -170,14 +170,12 @@ For the freshmen, the seniors spread the message, set a good example and amp up 
 
 “We have to lead the team," Yeguete stressed. "We have to be ready to go every single day, and we have to make sure they’re ready to go every single day, so we have to bring it."
 
-Side bar info: 
-Pre-game snack? Applesauce 
+Age: 22
+Year: Senior 
+Hometown: Paris, France (He was born in Bordeaux, though. That's what bios usually list) 
+Position: Forward 
+Career best: Final Four 
 
-Drink? Gatorade – dark and light blue 
-
-Song? “I usually listen to what the teammates put on in the locker room.” 
-
-Ritual? Pray before they go out on the court
 	 
 ##WOMEN'S TRACK 
 
