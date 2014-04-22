@@ -122,7 +122,7 @@ Yeguete said you can see Greene’s impact during games — not just by watching
 
 Preston's effect on the team begins on Day 1: when incoming freshmen enroll for the Summer B semester at the end of June. Throughout voluntary off-season training sessions, Greene begins to evaluate each player and creates a personal program for him to fix what he calls their “weak link.”
 
-The Clemson alumnus compares the process to getting your car aligned. Like when you let go of your steering wheel to see what direction your car goes in,  basketball players are the same when they move on the court and in the weight room.
+The Clemson alumnus compares the process to getting your car aligned. Like when you let go of your steering wheel to see what direction your car goes in, basketball players are the same when they move on the court and in the weight room.
 
 "Guys may be quicker to their right than they are to their left," Greene explained. "They may be tighter in one muscle than another one that works synergistically with the other. They may be stronger in one part of the body versus another part of the body. Those ratios change throughout the season just because of the way they move, the way they play, injuries."
 
@@ -148,7 +148,7 @@ So Greene set a goal for Yeguete: lose weight.
 
 “I was about 240 at the start of the season," Yeguete noted. "Now I’m at 223. My goal was to be 222, so I went down, like, 15 pounds. That just shows how Preston works."
 
-Greene's training program didn't just work for the athlete, it excelled. Yeguete was a starting forward for most of the 2013-2014 season and racked up about  900 minutes and about 200 rebounds.
+Greene's training program didn't just work for the athlete, it excelled. Yeguete was a starting forward for most of the 2013-2014 season with the highest consecutive starts on the team and racked up about 900 minutes and about 200 rebounds.
 
 With the Gators finishing the season as SEC champions and making it to the Final Four in the NCAA tournament, Greene couldn't be happier. His enthusiasm, however, is a staple for the team — win or lose.
 
@@ -158,7 +158,7 @@ On the court, Yeguete feeds off his own passion.
 
 “Playing basketball here is really fun," he raved. "It’s been really, really fun being here. Being out there, having fun with my teammates — that’s what keeps me going — Just going out there and doing what I love to do. It’s fun going out there with them and just trying to get better and seeking greatness."
 
-And greatness is expected.
+And greatness is expected for the team.
 
 “They know from Day 1 that there is a certain level of expectation that needs to be met on the court," Greene revealed. “Coach Donovan tells these guys during the recruiting process and during their time here, 'We are going to work in this program. You’re not just going to show up and play games. You are going to practice every day. You are going to condition. You are going to lift weights. You are going to do all these things in order to be successful, and that’s kind of the values of our program.' Our program is based on hard work. They get this message from everybody.”
 
