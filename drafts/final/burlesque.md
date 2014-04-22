@@ -1,6 +1,6 @@
 #The Mischievous Madams Bring Sexy Back
 
-Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and hourglass figures. A raven-haired beauty from another world floats onstage in a scarlet broad-skirted dress, her bright eyes ready to capture the imagination of the crowd. Before long, she’ll have them in the palm of her hand.
+Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a scarlet broad-skirted dress, her bright eyes ready to capture the imagination of the crowd. Before long, she’ll have them in the palm of her hand.
 
 A burlesque performer with the stage name Stella O’Hare removes her intricate costume slowly and deliberately in this Valentine’s Day show. First she uses her teeth to drag her black gloves off her delicate hands, then button-by-button, she unfastens her dress to reveal an ornate red corset.
 
@@ -16,13 +16,13 @@ O’Hare is one of seven women who enchant on a monthly basis in the Mischievous
 
 “We want to give Gainesville a good representation of what burlesque is and can be,” O’Hare said.
 
-Derived from the Italian word “burla,” meaning joke or mockery, burlesque is a form of variety show popular first in Europe and then the United States in the late 19th- and early 20th centuries that came to focus mainly on female striptease. After practically dying out in the 1970s, a new generation inspired by the glamour of the past have revived it during the last 20 years for a mainly female audience. For performers and enthusiasts, burlesque is a liberating form of self-expression best described as sexy, not sexual.
+Burlesque is a form of variety show that first became popular in Europe and then the United States in the late 19th and early 20th centuries, evolving to focus mainly on female striptease. After practically dying out in the 1970s, a new generation inspired by the glamour of the past have revived it during the last 20 years for a mainly female audience. For performers and enthusiasts, burlesque is a liberating form of self-expression best described as sexy, not sexual.
 
 “None of us are doing this for anyone else,” said one Mischievous Madam, who goes by Della Darling. "I feel like I can do anything. You’re totally vulnerable onstage, but you’re also controlling what happens.”
 
 The concept of the act is at the discretion of the performer and can be anything from dance-focused to scary or funny.
 
-The troupe’s only blonde, Jenny Castle, lit up the stage when she shot sparks off her metal panties at a rock-and-roll-themed show in March. During the troupe’s one-year anniversary show on April 12, she hobbled around with a cane in men’s clothing before busting a move while playing the character of the previous performer’s grandfather.
+The troupe’s only blonde, Jenny Castle, lit up the stage when she shot sparks off her metal panties at a rock-and-roll-themed show in March. During the troupe’s first anniversary show on April 12, she hobbled around in men's clothing with a cane while playing the character of the previous performer’s grandfather.
 
 "I used to always think I needed to be so good, but now I realize I really enjoy being funny. I’ve gotten into clowning and comedy, and I realized I enjoy that more and have a talent for that," Castle said. "We all do something different."
 
@@ -48,7 +48,7 @@ With no former performing experience, troupe member Formaldehyde Flower found he
 
 “When I put together an act, what I’m doing is creating a temporary world for myself and my audience," Flower said. "We exist somewhere else. This is not real life anymore."
 
-With so much anticipation for the clothes to come off in a strip tease, the audience may not realize how much work goes into creating the elaborate costumes. The Madams cultivate a do-it-yourself culture by making these together at the weekly “stitch and bitch,” where they meet at someone’s house to work on their next ensembles and share what’s happening in their lives over rind stones, hot glue and wine.
+With so much anticipation for the clothes to come off in a strip tease, the audience may not realize how much work goes into creating the elaborate costumes. The Madams cultivate a do-it-yourself culture by making these together at the weekly “stitch and bitch,” where they meet at someone’s house to work on their next ensembles and share what’s happening in their lives over rhinestones, hot glue and wine.
 
 They turn household items into props and bedazzle old shoes and lingerie to give costumes that desired sparkle. Dita Von Teese, currently the world’s most iconic burlesque star known for her girl in the glass act, has her set pieces encrusted with Swarovski luxury crystals. Costumes can get expensive quickly if a performer doesn’t use at least some home-made pieces.
 
