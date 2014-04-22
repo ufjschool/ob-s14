@@ -12,21 +12,21 @@ As the music crescendos, the moment everyone has been waiting for arrives. She s
 
 “People who don’t understand it will say ‘Oh, you’re just taking your clothes off. You’re just stripping,’” she said, “but that’s not what burlesque has to be. It’s not like I’m just going to take off my clothes and grind in your face for tip money. We’re putting on a show, putting on a performance for their entertainment.”
 
-O’Hare is one of seven women who enchant on a monthly basis in the Mischievous Madams burlesque troupe. Manager Stephen Tierney and founding members Aurora Bootyalis and Whiskey Chase formed the troupe in April 2013 as the first burlesque-only troupe in Gainesville. With shows on average every month, the Madams bring this classic style of performance to the community and have fun doing it.
+O’Hare is one of seven women who enchant on a monthly basis in the Mischievous Madams burlesque troupe. Manager Stephen Tierney formed the troupe in April 2013 with founding members Whiskey Chase, Aurora Bootyalis and Sylvia Love as the first burlesque-only troupe in Gainesville. With themed shows at several downtown venues, the Madams bring this classic style of performance to the community and have fun doing it.
 
 “We want to give Gainesville a good representation of what burlesque is and can be,” O’Hare said.
 
-Derived from the Italian word “burla” meaning joke or mockery, burlesque is a form of variety show popular first in England and then the United States in the late 19th- and early 20th centuries that came to focus mainly on female striptease. After experiencing practically dying out in the 1970s, a new generation inspired by the glamour and spectacle of the past have revived it during the last 20 years for a mainly female audience. For performers and enthusiasts, burlesque is a liberating form of self-expression best described as sexy, not sexual.
+Derived from the Italian word “burla,” meaning joke or mockery, burlesque is a form of variety show popular first in Europe and then the United States in the late 19th- and early 20th centuries that came to focus mainly on female striptease. After practically dying out in the 1970s, a new generation inspired by the glamour of the past have revived it during the last 20 years for a mainly female audience. For performers and enthusiasts, burlesque is a liberating form of self-expression best described as sexy, not sexual.
 
 “None of us are doing this for anyone else,” said one Mischievous Madam, who goes by Della Darling. "I feel like I can do anything. You’re totally vulnerable onstage, but you’re also controlling what happens.”
 
 The concept of the act is at the discretion of the performer and can be anything from dance-focused to scary or funny.
 
-The troupe’s only blonde, Jenny Castle, lit up the stage when she shot sparks off her metal panties at a rock-and-roll-themed show in March. During the troupe’s one-year anniversary show on April 12, she hobbled around with a cane in men’s clothing before busting a move as the character of the previous performer’s grandfather.
+The troupe’s only blonde, Jenny Castle, lit up the stage when she shot sparks off her metal panties at a rock-and-roll-themed show in March. During the troupe’s one-year anniversary show on April 12, she hobbled around with a cane in men’s clothing before busting a move while playing the character of the previous performer’s grandfather.
 
 "I used to always think I needed to be so good, but now I realize I really enjoy being funny. I’ve gotten into clowning and comedy, and I realized I enjoy that more and have a talent for that," Castle said. "We all do something different."
 
-Maressa Fox is another one of the Madams and founder of the Manic Menagerie Vaudeville Company, featuring classic burlesque and other ‘20s-style variety show acts. Since she began pursuing a career as a professional burlesque performer and entertainment manager, she has improved her craft by following advice she got from male burlesque performer Paco Fish:
+Maressa Fox is another one of the Madams and founder of the Manic Menagerie Vaudeville Company, which features classic burlesque and other variety show acts. Since she began pursuing a career as a professional burlesque performer and entertainment manager, she has improved her craft by following advice she got from male burlesque performer Paco Fish:
 
 “When an audience comes to a burlesque show they want one thing, and that’s not tits, it’s not ass. They want to get to know you,” Fox said.
 
