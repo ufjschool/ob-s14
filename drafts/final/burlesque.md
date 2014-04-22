@@ -4,7 +4,7 @@ Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with j
 
 A burlesque performer with the stage name Stella O’Hare removes her intricate costume slowly and deliberately in this Valentine’s Day show. First she uses her teeth to drag her black gloves off her delicate hands, then button-by-button, she unfastens her dress to reveal an ornate red corset.
 
-Basking in the glow of the audience’s roar, she savors every moment she gets to discard a piece of her carefully assembled lingerie.
+Basking in the glow of the audience’s roar, she savors each moment she gets to discard a piece of her carefully assembled lingerie.
 
 Down to a lacy red-and-black bra and panty set, she conceals her body with large, white feathered fans. A choreographed dance teases the audience with glimpses of her thigh or waist. She connects with them, looking people in the eyes and beckoning them to cheer until the crowd is frenzied.
 
