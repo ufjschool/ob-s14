@@ -16,7 +16,7 @@ Her coast to coast run would inevitability take her five and a half months to co
 
 Papadopoulos left for her run with only a route mapped out and her stroller that she dubbed Wilson. Wilson would carry things like water and clothes for her. She would run during the day and then stop in a town hoping to find a place to stay.
 
-As a devote Baptist, Her first stop would always be the Baptist Church where she would tell the congregation her mission and hope for support.  Papadopoulos said she was always amazed at the generosity and kindness of others.
+As a devote Baptist, her first stop would always be the Baptist Church where she would tell the congregation her mission and hope for support.  Papadopoulos said she was always amazed at the generosity and kindness of others.
 
 “During the beginning of my trip, Wilson kept having tire issues and someone bought me new tires for him,” she said. “Countless people also bought me new running shoes over the course of my run.”
 
