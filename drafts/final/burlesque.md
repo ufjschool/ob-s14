@@ -10,7 +10,7 @@ Down to a lacy red-and-black bra and panty set, she conceals her body with large
 
 As the music crescendos, the moment everyone has been waiting for arrives. She shows (almost) all in a pair of heart-shaped pasties and a sparkling thong. For O’Hare, however, the end result is the least important part of the performance.
 
-“People who don’t understand it will say ‘Oh, you’re just taking your clothes off. You’re just stripping,’” she said, “but that’s not what burlesque has to be. It’s not like, I’m just going to take off my clothes and grind in your face for tip money. We’re putting on a show, putting on a performance for their entertainment.”
+“People who don’t understand it will say ‘Oh, you’re just taking your clothes off. You’re just stripping,’” she said, “but that’s not what burlesque has to be. It’s not like I’m just going to take off my clothes and grind in your face for tip money. We’re putting on a show, putting on a performance for their entertainment.”
 
 O’Hare is one of seven women who enchant on a monthly basis in the Mischievous Madams burlesque troupe. Manager Stephen Tierney and founding members Aurora Bootyalis and Whiskey Chase formed the troupe in April 2013 as the first burlesque-only troupe in Gainesville. With shows on average every month, the Madams bring this classic style of performance to the community and have fun doing it.
 
