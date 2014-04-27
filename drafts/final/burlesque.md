@@ -1,6 +1,6 @@
 #The Mischievous Madams Bring Sexy Back
 
-Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with jazz, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a scarlet broad-skirted dress, her bright eyes ready to capture the imagination of the crowd. Before long, she’ll have them in the palm of her hand.
+Warm, dreamlike light permeates the stage. A sultry woman’s voice melds with jazz music, leading the audience down a nostalgic road to a time of martinis and cinched waists. A raven-haired beauty from another world floats onstage in a scarlet broad-skirted dress, her bright eyes ready to capture the imagination of the crowd. Before long, she’ll have them in the palm of her hand.
 
 A burlesque performer with the stage name Stella O’Hare removes her intricate costume slowly and deliberately in this Valentine’s Day show. First she uses her teeth to drag her black gloves off her delicate hands, then button-by-button, she unfastens her dress to reveal an ornate red corset.
 
