@@ -4,9 +4,9 @@ Kinetic energy equals 1/2mv^2 (Make that an exponent, please! These sentences ar
 
 Potential energy equals m · g · h
 
-For Orange & Blue, energy equals 20 students plus everything we've learned during our years studying at the University of Florida journalism school. We came together this semester to make a magazine exploring energy beyond what’s in a Physics textbook. A talented core of writers, editors, designers and photographers delved into the lives of drag queens and athletes, and spent time in coffee shops and haunted places to create their own energy equations.
+For Orange & Blue, energy equals 20 students plus everything we've learned during our years studying at the University of Florida College of Journalism and Communications. We came together this semester to make a magazine exploring energy beyond what’s in a Physics textbook. A talented core of writers, editors, designers and photographers delved into the lives of drag queens and athletes, and spent time in coffee shops and haunted places to create their own energy equations.
 
-Staff writer Katina Prokos features the Mischievous Madams Burlesque Troupe in Gainesville. Dancers like Maressa Fox and Stella O’Hare inspire by letting go of their inhibitions. Photographer Yaissy Solis documents the festive atmosphere that takes over every month in various Gainesville clubs. This feature is one of many that re-define what it means to move. 
+Staff writer Katina Prokos features the Mischievous Madams Burlesque Troupe from Gainesville. Dancers like Maressa Fox and Stella O’Hare inspire by letting go of their inhibitions. Photographer Yaissy Solis documented the festive atmosphere that takes over every month in various venues around the area. This feature is one of many that re-defines what it means to move. 
 
 Editors Devon Abelman and Adam Pincus 
 (Is there some way of having our signatures here?)
