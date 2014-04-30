@@ -26,6 +26,7 @@ Belief is one thing, but definitive proof of psychic powers still eludes the mai
 
 
 READING AURAS 
+
 Andrew Nichols, who holds a Ph.D. in clinical psychology, teaches classes to the Gainesville community about honing psychic senses. He is also a parapsychologist, a practitioner of the field which explores how the human mind relates to things that exist beyond our typical five senses. 
 
 He said he has had the ability to see energy since he was a child. He called it the ability to see “auras” that appeared to him as “misty luminescence” —similar to heat waves coming off of a sidewalk but in different colors.
@@ -53,13 +54,13 @@ Parapsychologists believe in auras and energy, thus believing in the merits of e
 The notion of being able to communicate with dead people, however, is still a hotly debated topic in the community. No one is able to give a definitive answer on how it is done. 
 
 DEFINING MEDIUMS 
+
 Primarily in history, there have been two main types of mediums: physical and mental. Physical mediums conducted their sessions in dimly lit rooms and would make objects fly around, tables shake and a substance called ectoplasm exude from their bodies. The latter is more rare nowadays due to many of them being exposed as fakes. 
 
 Mental mediums claim to hear the voices of the dead or see images in their minds before relaying them to their audiences. The entirely internal experience is more difficult to disprove, but mental mediums still have their detractors. The most common argument is they say such vague or obvious things that something they say is bound to have some significance to their client.
 
 Nichols admitted mediums do say vague and generic things, called “cold reading,” as a form of biding time because they cannot turn on messages from the deceased at will. On the other hand, they may say something so specific and so personal that they could have only known it from that deceased person. That is proof, Nichols said, that they must have some connection to a different source of knowledge.
 
-SUBHEAD? 
 There are two main theories about how mediums receive their information. One is the Super ESP theory: Mediums can access knowledge from a sort of “cosmic database” where dead people’s consciousnesses have all melded together. The other is the Survivalist theory that says mediums are communicating with actual dead spirits. Both theories leave room for problems in the communication process. 
 
 In the Super ESP hypothesis, a medium might not be able to distinguish what comes from his or her own subconscious and what comes from the cosmic conscious. Parapsychologists generally accept the concept of extrasensory perception but are unsure of its limits. It is entirely possible everything a medium “hears” is coming from within themselves and not external sources.
