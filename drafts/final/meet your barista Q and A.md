@@ -7,18 +7,18 @@ Q. Why CYM? What makes it different?
 A. Well I think that just everything here, the whole cymplify community, we have other stores than just the coffee shop. We really try to focus on quality and customer service. It’s pretty typical of most coffee shops, though. We have a pretty laid back atmosphere.
 
 Q. What’s the best part about working at CYM?
-A. I love the job here, I love cym, there is really nothing bad about it.
+A. I love the job here. I love CYM. There is really nothing bad about it.
 
 Q. What’s the worst part about working at CYM?
 A. I can’t even think about something bad about it. It’s just great.
 
 Q. It’s a customer’s first time. What do you recommend? 
-A. I like to steer people into trying coffee from different places and different origins. I start people off, if they're interested, in trying different types of coffee and then we get into different brew methods. I usually try to do something that will compliment the flavor of the coffee, but we have a lot of cool specialty drinks that are cool and fun.
+A. I like to steer people into trying coffee from different places and different origins. I start people off — if they're interested — in trying different types of coffee and then we get into different brew methods. I usually try to do something that will compliment the flavor of the coffee, but we have a lot of cool specialty drinks that are cool and fun.
 
 Q. What’s the most popular drink?
 A. Mint Mocha
 
-Q. When I’m hyped on coffee, I ___________
+Q. When I’m hyped on coffee, I ...
 A. I do math better?
 
 Q. What’s a normal day like at CYM?
@@ -44,11 +44,11 @@ BARISTA INTERVIEW: Karma Cream
 
 Its name fits its purpose. 
 
-With a drive to use solely organic ingredients and provide vegan-friendly options to customers, Kyle Fick, 29-year-old owner of Karma Cream, said he opened it with the intention of starting a business that was cruelty-free and socially responsible. 
+With a drive to use solely organic ingredients and provide vegan-friendly options to customers, Kyle Fick, 29-year-old owner of Karma Cream, said he opened it with the intention of starting a cruelty-free and socially responsible business.
 
-“Everything here is organic—our milk—it’s all grass-fed, hormone-free treated cows. My wife, she’s vegan. I’m vegetarian myself.  So there was kind of a purpose to this as well than just making money and scooping ice-cream. This is kind of a means to the end. I’d rather have an option that people might feel better about.”
+“Everything here is organic — our milk — it’s all grass-fed, hormone-free treated cows. My wife, she’s vegan. I’m vegetarian myself.  So there was kind of a purpose to this as well than just making money and scooping ice cream. This is kind of a means to the end. I’d rather have an option that people might feel better about.”
 And that’s how he came up with the name, Karma Cream. 
-After graduating with a political science degree from the University of Florida, Fick started working in restaurants and sales and making music before deciding he wanted to do something on his own. 
+After graduating with a political science degree from UF, Fick started working in restaurants and sales and making music before deciding he wanted to do something on his own. 
 “I kind of, from early on, didn’t want to work for anyone else and wanted to play by my own rules,” he said. “So far it’s working out.”
 Fick has been the owner for almost five years, since Karma Cream opened in April 2009 on West University Avenue. Meet the barista, Kyle Fick:
 
