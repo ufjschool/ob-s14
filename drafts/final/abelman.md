@@ -3,7 +3,7 @@ HED: Mr. Positive Push
 DEK: Comedy + Energy 
 
 
-Everyone has their definition of rock bottom. Some people know it just in case -- almost as a measure. Some people know it when they feel it. It could be losing your job, going bankrupt, breaking up with a significant other or even eating the whole carton of ice cream. For Brody Stevens, rock bottom was lying in a hospital bed. 
+Everyone has their definition of rock bottom. Some people know it just in case — almost as a measure. Some people know it when they feel it. It could be losing your job, going bankrupt, breaking up with a significant other or even eating the whole carton of ice cream. For Brody Stevens, rock bottom was lying in a hospital bed. 
 
 He didn't get in an accident. Nothing had to be operated on. He had no apparent injuries; however, there he was lying in a hospital bed in UCLA. But this wasn't the intensive care unit. This was the psychiatric ward, and no one was more in shock than Brody himself. 
 
@@ -21,7 +21,7 @@ His positive energy began taking him places — from New York, where he became f
 
 Brody grappled with anxiety for years before going on medication to control it. But in 2011, medication no longer seemed necessary to him as he buzzed with success. 
 
-Stopping abruptly sent Brody's hot streak into a total meltdown, and everyone knew about it. In his own words, he went nuts. Under his Twitter handle @allthingsbrody, he basically live-tweeted his manic episode for the world to pull up a chair and view. His followers saw his tweets shift from seeming like a nice guy to two days of confrontational rants about having a gun, filled with unprecedented cursing in all-caps. But his tweets constantly had #positivity at the end. He started filming himself threatening people in parking lots and uploading the videos to YouTube. Off social media, Brody began cutting off his friends, starting with Galifianakis. 
+Stopping abruptly sent Brody's hot streak into a total meltdown, and everyone knew about it. In his own words, he went nuts. Under the Twitter handle @allthingsbrody, he basically live-tweeted his manic episode for the world to pull up a chair and view. His followers saw his tweets shift from seeming like a nice guy to confrontational rants about having a gun, filled with unprecedented cursing in all-caps. But Brody's tweets, which have now been deleted, constantly had #positivity at the end. He started filming himself threatening people in parking lots and uploading the videos to YouTube. Off social media, Brody began cutting off his friends, starting with Galifianakis. 
 
 Back in 2011, Galifianakis became the driving force for not only getting Brody the help he needed but also helping him get his own show.  For years, Galifianakis told Brody that he was interested in doing a show about him. 
 
