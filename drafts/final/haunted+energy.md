@@ -28,7 +28,7 @@ Davis checked the bathroom to make sure his roommates hadn’t ducked in there t
 
 Only one roommate was home, and he was sound asleep. When Davis woke him up, he had no idea what was going on.
 
-And that was only the first time, Romero said. Another night, Davis was trying to fall asleep when he heard the sound again — chairs moving in the common room. No one was home.
+And that was only the first time, then-sophomore Romero said. Another night, Davis was trying to fall asleep when he heard the sound again — chairs moving in the common room. No one was home.
 
 He ignored it until he saw his doorknob turn, slowly. Romero said Davis didn't go to sleep that night. 
 
