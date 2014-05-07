@@ -21,17 +21,17 @@ His positive energy began taking him places — from New York, where he became f
 
 Brody grappled with anxiety for years before going on medication to control it. But in 2011, medication no longer seemed necessary to him as he buzzed with success. 
 
-Stopping abruptly sent Brody's hot streak into a total meltdown, and everyone knew about it. In his own words, he went nuts. Under the Twitter handle @allthingsbrody, he basically live-tweeted his manic episode for the world to pull up a chair and view. His followers saw his tweets shift from seeming like a nice guy to confrontational rants about having a gun, filled with unprecedented cursing in all-caps. But Brody's tweets, which have now been deleted, constantly had #positivity at the end. He started filming himself threatening people in parking lots and uploading the videos to YouTube. Off social media, Brody began cutting off his friends, starting with Galifianakis. 
+Stopping abruptly sent Brody's hot streak into a total meltdown, and everyone knew about it. In his own words, he went nuts. Under the Twitter handle @allthingsbrody, he basically live-tweeted his manic episode for the world to pull up a chair and view. His followers saw his tweets shift from mundane updates to confrontational rants about having a gun, filled with unprecedented cursing in all-caps. But Brody's tweets, which have now been deleted, constantly had #positivity at the end. He started filming himself threatening people in parking lots and uploading the videos to YouTube. Off social media, Brody began cutting off his friends, starting with Galifianakis. 
 
 Back in 2011, Galifianakis became the driving force for not only getting Brody the help he needed but also helping him get his own show.  For years, Galifianakis told Brody that he was interested in doing a show about him. 
 
-“He always thought it was funny the way I interacted with my sister," Brody explained, "and he thought my mind was kind of interesting." 
+“He always thought it was funny the way I interacted with my sister," Brody explained. "He thought my mind was kind of interesting." 
 
 So they taped a pilot. The documentary-style episode focused on Brody and his sister, Stephanie, reconciling for his mom's 80th birthday. Later Galifianakis and Brody pitched it to Comedy Central, HBO and Adult Swim, and all the networks liked it. HBO eventually ordered five more episodes and  gave Brody two months to plan before taping. 
 
 However, in those two months, the tweeting started, and Galifianakis starting getting hostile voicemails. With the help of Brody's manager, Dave Rath, Galifianakis contacted Los Angeles County Department of Mental Health's Psychiatric Emergency Team. Officers involuntarily detained Brody after he got out of the shower and brought him in for evaluation. 
 
-Having that positive energy was crucial to his recovery. Knowing what helped him in the past, Brody knew he had to focus on the positive to help him recover. However, now it was no longer part of his act.
+Having that positive energy was crucial to his recovery. Knowing what helped him in the past, Brody knew he had to focus on the positive to help him recover. 
 
 "I kind of had to get myself out of this hole," he divulged. "It wasn’t like, 'Oh, I’m a nice guy, positive energy.' I really needed positive energy to get me out of the hole. I just learned that by generating that energy that good stuff can happen. Good things started to happen. I put certain emotions out in the universe, and good things happened again.” 
 
@@ -47,8 +47,11 @@ He felt having this goal was realistic and smart. Instead of gunning for a natio
 
 "Brody Stevens: Enjoy It!" premiered on Comedy Central and HBO Digital in December 2013, introducing viewers to Brody's story of positive energy, family and recovery. 
 
-Don't expect Brody to put Mr. Positive Energy under his name on his business card any time soon, though. 
+Don't expect Brody to put Mr. Positive Energy under his name on his business card any time soon though. 
+
 "Being positive is never going to go out of style," he noted. "It’s never going to be wrong. So me as a performer, I don’t have to label myself like that." 
-Instead, he'd rather Mr. Positive Push, because he thinks that's funnier and a new spin on the term that people seem to throw around a lot. 
-"As a comedian,I like to keep it fresh," Brody said, "so now I’m more into Positive Push." 
+
+Instead, he'd prefer Mr. Positive Push, because he thinks that's funnier and a new spin on the term that people seem to throw around a lot. 
+
+"As a comedian, I like to keep it fresh," Brody said, "so now I’m more into Positive Push." 
 
