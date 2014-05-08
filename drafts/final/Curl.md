@@ -4,23 +4,23 @@ Suggestion from Devon: Girl on the Run
 
 Slug: Running + Energy 
 
-On the morning of January 3, 2012, Athena Papadopoulos laced up her running shoes on Jacksonville Beach and prepared herself for a run. She wasn’t the only one on the beach that morning who would be running, but she was the only one who planned to run 2,460 miles.
+On the morning of Jan. 3, 2012, Athena Papadopoulos laced up her running shoes on Jacksonville Beach, Fla., and prepared herself for a run. She wasn’t the only one on the beach that morning who would be running, but she was the only one who planned to run 2,460 miles.
 
 The 22-year-old runner spent a year in Kenya on a mission trip and came home to America feeling a little lost. 	
 
 “When I got back to America, the memories of Kenya and of the people I met really stuck with me,” Papadopoulos said. “When I was there, I felt like I was helping out, but once I got back home, I felt like I couldn’t do anything more for them.”
 
-She soon began formulating an idea of how she could help the people she had grown to love in Kenya. To raise money and awareness for clean drinking water for people there, she decided she would run from Jacksonville to San Diego. 
+She soon began formulating an idea of how she could help the people she had grown to love in Kenya. To raise money and awareness for clean drinking water for the country, she decided she would run from Jacksonville to San Diego, Calif. 
 
-Her coast-to-coast run would take her five-and-a-half months to complete, or 163 days, and she raised about $19,000 from people who heard her story along the way and decided to donate money to her efforts. 
+Her coast-to-coast run would take her five-and-a-half months to complete, or 163 days, and would raise about $19,000 from people who heard her story along the way and decided to donate. 
 
-Papadopoulos left for her run with only a route mapped out and a stroller that she dubbed Wilson. Wilson would carry things like water and clothes for her.  During the day, She would run and then stop in a town hoping to find a place to stay.
+Papadopoulos left for her run with only a route mapped out and a stroller that she dubbed Wilson that would carry things like water and clothes for her.  During the day, she would run and then stop in a town hoping to find a place to stay.
 
 As a devote Baptist, her first stop would always be the Baptist Church where she would tell the congregation her mission and hope for support.  Papadopoulos said she was always amazed at the generosity and kindness of others.
 
 “During the beginning of my trip, Wilson kept having tire issues, and someone bought me new tires for him,” she said. “Countless people also bought me new running shoes over the course of my run.”
 
-Most nights, Papadopoulos had a warm place to stay, but there were occasions when she had to pitch a tent on the side of the road. Sleeping on the side of the road wasn’t the safest idea. Some nights it would rain, and every little sound would keep her up thinking it might be a possible intruder. There were other times when the sun would rise before 5 a.m., making it too hot to sleep. 
+Most nights, Papadopoulos had a warm place to stay, but there were occasions when she had to pitch a tent on the side of the road. Sleeping on the side of the road wasn’t the safest idea. Some nights it would rain, and every little sound would keep her up thinking. There were other times when the sun would rise before 5 a.m., making it too hot to sleep. 
 
 “It was kind of scary,” she admitted. “It was also really hard to sleep with the sun coming up so early, so I was really tired on those days.”
 
@@ -30,7 +30,7 @@ As she continued on her journey, the biggest surprise to her was people decided 
 
 The biggest shock yet came when she made it to Mississippi. Two women decided to run the rest of the journey with her. Papadopoulos said having other people on the trip definitely made things more enjoyable.
 
-With only about a month left in her journey, disaster struck. All of the strain she had put on herself from running led to a stress fracture in her foot. Papadopoulos made it to Phoenix and took a few days off from running, feeling very disheartened at the time. 
+With only about a month left in her journey, disaster struck. All of the strain she had put on herself from running led to a stress fracture in her foot. Papadopoulos made it to Phoenix, Ariz., and took a few disheartening days off from running.
 
 “The day I went to the doctor and he told me I had a stress fracture, I was at an all-time low,” she said, “but then everyone who was following my journey was sending me their support and prayers, and I just looked to God, and I knew that I could finish.”
 
