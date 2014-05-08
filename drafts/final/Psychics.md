@@ -88,11 +88,10 @@ Green received her RN at Seminole State College in 1983. She became certified in
 
 From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old when she first realized she was sensitive to noise. By the time she was 3 or 4 years old, she started going to birthday parties and couldn’t stand the children screaming and yelling while playing. She was highly emotional and sensitive to the children around her. 
 
-She was also hypersensitive to sounds and light. Flash photography felt brighter than the sun, so she had to wear sunglasses. Her eye doctor told her it was not likely for her to be so sensitive to light, because she had dark eyes that provide more protection from light.  
+She was also hypersensitive to sounds and light. Flash photography felt brighter than the sun, so she had to wear sunglasses. Her eye doctor told her that it was not likely for her to be so sensitive to light, because she had dark eyes that provided enough protection from the light.  
 
 When she was 10, her father past away. She thought she was being watched. By the age of 12, Green she started to see energy around things, an ability known as clairvoyance. She was also able to hear the energies around her, known as clairaudience.  
-
-This ability was something she understood later on in life as functioning on a higher frequency level. Today it’s referred to as HSP, higher sensory perception. 
+This ability was something she understood later on in life as functioning on a higher frequency level. Today it’s referred to as higher sensory perception or HSP.
 
 “It is like taking your basic senses to the second floor,” Green said. 
 
