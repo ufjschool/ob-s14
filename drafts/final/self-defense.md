@@ -4,17 +4,17 @@ Hulking toward her in the darkness, the faceless aggressor takes many forms.
 
 For one woman, he is the high school football player she couldn’t push away at age 16. For another, he represents not one person but the three boys who surrounded her and beat her up one night in middle school. For most, he is an unknown attacker who may not exist but haunts her imagination, always close behind in a parking lot.
 
-“Stop!” they yell, somewhat startled by their own voices at first. They muster more confidence to shout “stay back!” before kicking his groin or striking hard at his face. They make a run for the door, and the experience is over as quickly as it began.
+“Stop!” they yell, somewhat startled by their own voices at first. They muster more confidence before shouting “stay back!” and kicking his groin or striking hard at his face. They make a run for the door, and the experience is over as quickly as it began.
 
-The participants in UFPD's Rape Aggression Defense Program (RAD) are never really alone, though, nor in any danger. The aggressors are actually police officers in protective padding who simulate attacks for the women while certified RAD self-defense instructors stay near to yell suggestions and make sure no one gets hurt. The supportive voices of fellow self-defense students cheer them on from the sidelines.
+The participants of the University of Florida Police Department's Rape Aggression Defense Program (RAD) are never really alone, though, nor in any danger. The aggressors are actually police officers in protective padding who simulate attacks for the women while certified RAD self-defense instructors stay near to yell suggestions and make sure no one gets hurt. The supportive voices of fellow self-defense students cheer them on from the sidelines.
 
-RAD is the world’s largest network of self-defense programs designed for women. RAD instructors have taught more than 900,000 women the basics of personal safety and hands-on techniques since the program was founded in 1989, according to its website.
+RAD is the world’s largest network of self-defense programs designed for women. RAD instructors have taught more than 900,000 women the basics of personal safety with hands-on techniques since the program was founded in 1989, according to its website.
 
 UFPD’s program is unlike most. It is funded completely by the police department, which allowed 437 women in the campus community to take the basic course last year for free. UFPD will begin offering self-defense classes for men this year.
 
 Women can register for a series of four classes that takes place over two weeks. Following an informational overview of risk reduction and avoidance, the course progresses to learning and practicing moves such as blocking, hitting and kicking. The participants put their skills to the test on the final night by escaping three increasingly difficult attack simulations.
 
-The course goes beyond teaching women practical techniques to convincing participants of their own strength and capability. Many notice a dramatic change in their self-confidence in day-to-day life.
+The course goes beyond teaching women practical techniques by convincing participants of their own strength and capability. Many notice a dramatic change in their self-confidence.
 
 Danna Regnier, 21, couldn’t walk anywhere alone without remembering being bullied and beat up as a girl in China. The UF sophomore and Innovation Academy student decided it was time to change that by taking the RAD course and found herself reliving those experiences during simulations.
 
