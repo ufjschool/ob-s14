@@ -9,7 +9,7 @@ Beneath the “Parental Advisory” beanie and the faded black hoodie, the 4 a.m
 
 With mackerel season almost over, his chances of making a good catch are slim. After paying for gas, he will most likely lose money on today’s venture.  
 
-If nothing else, at least he’ll be able to send some of his signature Snapchats. His friends receive videos of him jamming out in the car on his early drives almost daily — energy drink in hand. His job description on Facebook summarizes his straightforward, yet humorous perspective. It reads, “Killing animals at Atlantic Ocean.” His winning sense of humor helps him endure the demanding work of his profession. 
+If nothing else, at least he’ll be able to send some of his signature Snapchats. His friends receive videos of him jamming out in the car on his early drives almost daily — energy drink in hand. His job description on Facebook summarizes his straightforward, yet humorous perspective. It reads, “Killing animals at Atlantic Ocean.” His sense of humor helps him endure the demanding work of his profession. 
 
 “If I had to describe him in one word, I’d say he’s a badass,” said Luis Muniz, Balasis’ friend of nearly 10 years. “He’s the hardest worker I know.” 
 
@@ -35,7 +35,7 @@ Most days, he works in solitude, the squeaking of the handle responding to his u
 
 Balasis needs fuel at the next stop — for Miss Ellie and for himself.  Luckily, the gas station sits adjacent to a Dunkin’ Donuts. He fills up the tank, transfers his equipment from the truck to the boat in preparation for the day’s work and picks up an orange Gatorade. The restaurant has just opened by the time he finishes. He orders a medium coffee and nothing more — just enough to give him a boost before heading to his final destination. 
 
-At the ramp, he makes the transformation from man to fisherman, clipping on his overalls and pulling on his tough rubber boots. He jumps into the truck one last time — backing up, backing up, backing up — the boat and the water inching closer together, like two lovers expectantly awaiting a kiss, until they touch. Miss Ellie and the ocean reunite. 
+At the ramp, he makes the transformation from man to fisherman, clipping on his overalls and pulling on his tough rubber boots. He jumps into the truck one last time — backing up, backing up, backing up — the boat and the water inching closer together, like two lovers awaiting a kiss, until they touch. Miss Ellie and the ocean reunite. 
  
 
 ###Part III: The Ocean
@@ -62,7 +62,7 @@ Balasis sells his fish to a wholesale dealer in Port Canaveral called Seafood At
 
 The intricate chain functions similarly to a drug cartel. Balasis provides fish to the dealers, who in turn sell it to the clients. Without him, the chain ceases to exist. He stars as Heisenberg in his own version of “Breaking Bad.”
 
-Once he arrives at his destination, he stands in the bed of his truck and places the fish into a large Styrofoam bin filled with ice before the chef wheels the product of Balasis' hard work into the building. The price of his labor totals just $151 — $1 per pound of mackerel. 
+Once he arrives at his destination, he stands in the bed of his truck and places the fish into a large Styrofoam bin filled with ice before the Seafood Atlantic chef wheels the product of Balasis' hard work into the building. The price of his labor totals just $151 or $1 per pound of mackerel. 
 
 One of the drawbacks to being a fisherman is the uncertainty that comes with the profession.  He never knows if the weather, supply and demand, or luck, will work in his favor — kind of like Heisenberg’s uncertainty principle. Balasis lives in suspense most of the year, awaiting his next big catch.  
  
@@ -71,11 +71,11 @@ One of the drawbacks to being a fisherman is the uncertainty that comes with the
 
 The instability of his profession never stops him from living life to the fullest. When he’s not fishing, Balasis hangs out with his friends, expresses his loyalty to Chipotle Mexican Grill by ordering a burrito bowl daily and never misses an opportunity to hug a pretty girl — although, his heart belongs to one lady in particular.  
 
-His love for the sea and pride in being in fisherman is apparent to everyone he encounters — and not simply because of his passion. He sports a hogfish tattoo on his left forearm and an entire sleeve on his right. The vivid scene boasts a net, a lobster, the ocean, a kingfish and a mutton snapper. 
+His love for the sea and pride in being in fisherman is apparent to everyone he encounters — and not simply because of his passion. He sports a Hogfish tattoo on his left forearm and an entire sleeve on his right. The vivid scene boasts a net, a lobster, the ocean, a Kingfish and a Mutton snapper. 
 
 “Fishing can be very rewarding to someone who enjoys it," he says, "but it’s the hardest, most backbreaking work you can imagine." 
 
-Although his days spent fishing bring him happiness, Balasis remains conscious of the things he often sacrifices for the job he loves. Lack of sleep, skin cancer and the toll it can take on a fisherman’s family life — if he’s lucky enough to have one — are all possible symptoms of his unquenchable addiction. He works rain or shine, drives all the way to the Gulf Coast if need be and never puts sleep first. He even made up a quote to help him cope with the stressful days: “Days of agony for moments of bliss.”
+Although his days spent fishing bring him happiness, Balasis remains conscious of the sacrifices he makes for the job he loves. Lack of sleep, skin cancer and the toll it can take on a fisherman’s family life — if he’s lucky enough to have one — are all possible symptoms of his unquenchable addiction. He works rain or shine, drives all the way to the Gulf Coast if need be and never puts sleep first. He even made up a quote to help him cope with stressful times: “Days of agony for moments of bliss.”
 
 Recently, a cheap shot from a belligerent man left him with a broken jaw. It’s been wired shut for three weeks now, meaning protein shakes and other liquids are his only source of sustenance. Even without solid food in his stomach and a stabbing pain in his face, he continues to fish. But he daydreams about the feast he plans to eat at Chili’s upon the wire’s removal: queso, fajitas, bacon ranch quesadillas, chipotle chicken tenders and molten lava cake. And no, he doesn’t intend to share.
 
