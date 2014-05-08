@@ -13,17 +13,17 @@ A burlesque performer with the stage name Stella O’Hare removes her intricate 
 
 Basking in the glow of the audience’s roar, she savors each moment she gets to discard a piece of her carefully assembled lingerie.
 
-Down to a lacy red-and-black bra and panty set, she conceals her body with large white feather fans. A choreographed dance teases the audience with glimpses of her thigh or waist. She connects with them, looking people in the eyes and beckoning them to cheer until the crowd is frenzied.
+Down to a lacy red-and-black bra and panty set, she conceals her body with large white feather fans. A choreographed dance teases the audience with glimpses of her thigh and waist. She connects with them, looking people in the eyes and beckoning them to cheer until the crowd is frenzied.
 
 As the music crescendos, the moment everyone has been waiting for arrives. She shows — almost — all in a pair of heart-shaped pasties and a sparkling thong. For O’Hare, however, the end result is the least important part of the performance.
 
-“People who don’t understand it will say, ‘Oh, you’re just taking your clothes off. You’re just stripping,’” she said, “but that’s not what burlesque has to be. It’s not like I’m just going to take off my clothes and grind in your face for tip money. We’re putting on a show, putting on a performance for their entertainment.”
+“People who don’t understand it will say, ‘Oh, you’re just taking your clothes off. You’re just stripping, but that’s not what burlesque has to be," she said. "It’s not like I’m just going to take off my clothes and grind in your face for tip money. We’re putting on a show, putting on a performance for their entertainment.”
 
 O’Hare is one of seven women who enchant on a monthly basis in the Mischievous Madams burlesque troupe. Manager Stephen Tierney formed the troupe in April 2013 with founding members Whiskey Chase, Aurora Bootyalis and Sylvia Love as the first burlesque-only troupe in Gainesville. With themed shows at several downtown venues, the Madams bring this classic style of performance to the community and have fun doing it.
 
 “We want to give Gainesville a good representation of what burlesque is and can be,” O’Hare said.
 
-Burlesque is a form of variety show that first became popular in Europe and then the United States in the late 19th and early 20th centuries, evolving to focus mainly on female striptease. After practically dying out in the 1970s, a new generation inspired by the glamour of the past has revived it during the last 20 years for a mainly female audience. For performers and enthusiasts, burlesque is a liberating form of self-expression best described as sexy, not sexual.
+Burlesque is a form of variety show that first became popular in Europe and then the United States in the late-19th and early-20th centuries, evolving to focus mainly on female striptease. After practically dying out in the 1970s, a new generation inspired by the glamour of the past has revived burlesque during the last 20 years for a mainly female audience. For performers and enthusiasts, burlesque is a liberating form of self-expression best described as sexy, not sexual.
 
 “None of us are doing this for anyone else,” said Della Darling, one of the Mischievous Madams. "I feel like I can do anything. You’re totally vulnerable onstage, but you’re also controlling what happens.”
 
@@ -51,11 +51,11 @@ Other troupe members say they are naturally shy but burlesque gives them a chanc
 
 “It’s like I’m a completely different person when I get onstage,” O’Hare said. “Up until the very last second when I get onstage, I’m freaking out, but when we get onstage and everyone cheers, it’s this adrenaline rush that’s like nothing else.”
 
-With no former performing experience, troupe member Formaldehyde Flower found herself drawn to burlesque not only as accepting of all kinds of women but also a good way for an introvert to meet new people. With gothic style that blends beauty with darkness, she brands herself as Gainesville’s spooky sweetheart. Her fantastical acts transport the audience with characters like a witch doctor and the Cheshire Cat.
+With no former performing experience, troupe member Formaldehyde Flower found herself drawn to burlesque not only because it accepts of all kinds of women but it is also a good way for an introvert to meet new people. With gothic style that blends beauty with darkness, she brands herself as Gainesville’s spooky sweetheart. Her fantastical acts transport the audience with characters like a witch doctor and the Cheshire Cat.
 
 “When I put together an act, what I’m doing is creating a temporary world for myself and my audience," Flower said. "We exist somewhere else. This is not real life anymore."
 
-With so much anticipation for the clothes to come off in a strip tease, the audience may not realize how much work goes into creating the elaborate costumes. The Madams cultivate a do-it-yourself culture by making these together at the weekly “stitch and bitch,” where they meet at someone’s house to work on their next ensembles and share what’s happening in their lives over rhinestones, hot glue and wine.
+With so much anticipation for the clothes to come off in a strip tease, the audience may not realize how much work goes into creating the elaborate costumes. The Madams cultivate a do-it-yourself culture by making costumes together at the weekly “stitch and bitch,” where they meet at someone’s house to work on their next ensembles and share what’s happening in their lives over rhinestones, hot glue and wine.
 
 They turn household items into props and bedazzle old shoes and lingerie to give costumes that desired sparkle. Dita Von Teese, currently the world’s most iconic burlesque star known for her girl-in-the-glass act, has her set pieces encrusted with Swarovski luxury crystals. Costumes can get expensive quickly if a performer doesn’t use at least some homemade pieces.
 
@@ -63,4 +63,4 @@ They turn household items into props and bedazzle old shoes and lingerie to give
 
 Like conceptualizing the act, creating the costumes is a labor of love for the Madams. Although they may get different things out of performing, each Mischievous Madam has had her life changed for the better by discovering burlesque. Bravely completing a strip tease for a group of friends and strangers has given each of them a boost of confidence and a chance to connect with themselves as well as the audience.
 
-"[The acts] are all small parts of me I don’t express outwardly," said Mischievous Madam Sally Sucre. "I am kind of shy, so it’s not typical for me to just kind of take off my clothes in front of people I don’t know. The first time I did it, it was just so empowering and enthralling that I didn’t even care how many people were there or how many people weren’t."
+"[The acts] are all small parts of me I don’t express outwardly," Mischievous Madam Sally Sucre said. "I am kind of shy, so it’s not typical for me to just kind of take off my clothes in front of people I don’t know. The first time I did it, it was just so empowering and enthralling that I didn’t even care how many people were there or how many people weren’t."
