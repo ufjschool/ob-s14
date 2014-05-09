@@ -4,7 +4,7 @@ DEK: Athletes + Energy
 
 For some University of Florida athletes, energy is the electric buzz of techno music. For others, it’s caffeine coursing through their veins. Energy is a green Gatorade bottle or a protein bar. It’s feeling cold water sliding down your throat during an afternoon practice or the smell of a sizzling steak at dinnertime. Energy is that moment of complete mental and physical suspension before the gun goes off, a whistle sounds or the ball is passed. It’s a team prayer, the words of a coach, the hopeful cries of fans. For athletes at UF, just the mere sight of an orange and blue jersey is enough to power them up, excite their spirits and send them flying full-force into the performances of their lifetimes.
 
-Talent takes an athlete only so far. Behind the record-setting times, the slam dunks, the ESPN Top 10-worthy plays and the perfect 10.0s lies months of preparation with a staff that stands ready to infuse energy into both the bodies and the minds of these athletes. Like an actor on stage, an individual athlete collaborates with a team of backstage managers in order to give their best possible performance on gameday.
+Talent takes an athlete only so far. Behind the record-setting times, the slam dunks, the Sports Center Top 10-worthy plays and the perfect 10.0s lies months of preparation with a staff that stands ready to infuse energy into both the bodies and the minds of these athletes. Like an actor on stage, an individual athlete collaborates with a team of backstage managers in order to give their best possible performance on gameday.
 
 We sat down with some of UF's top-performing athletes and the people who impact them most. 
 
@@ -116,7 +116,7 @@ When the Gators took on the Kentucky Wildcats at Rupp Arena on Feb. 15, ESPN dis
 
 Greene has been the team’s strength and conditioning coordinator for three seasons. Every day throughout the year, he’s with the team making them stronger, faster and more flexible than the day they were recruited. He’s the guy on the court before the game stretching the players out who all the girls in the stands squeal about wishing they could be with. Of all the individuals who help contribute to the performance of a UF men’s basketball player, Greene is literally the most hands on.
 
-Yeguete said you can see Greene’s impact during games and just by watching how the Gators move on the court.
+Yeguete said you can see Greene’s impact during games by watching how the Gators move on the court.
 
 “We play against teams that can’t keep up with us because we are better conditioned than they are," Yeguete said. "I think that’s a credit to Preston.”
 
