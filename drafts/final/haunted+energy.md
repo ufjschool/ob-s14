@@ -32,7 +32,7 @@ And that was only the first time, then-sophomore Romero said. Another night, Dav
 
 He ignored it until he saw his doorknob turn, slowly. Romero said Davis didn't go to sleep that night. 
 
-#####A Little History
+#####Beaty's Backstory 
 
 Jutting ungracefully out of the corner of 13th Street and Museum Road, Beaty Towers is a campus landmark and, to some, an eyesore. The coed dorm was somewhat eerily known as the “Twin Towers” when it opened in 1967 but was eventually named after professor Robert Calder Beaty. Beaty was a World War I veteran and former University of Florida dean of student personnel who retired in 1960.
 
