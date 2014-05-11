@@ -91,7 +91,7 @@ Beverage of choice? Goldschläger, no chaser.
 
 “Makes me realize that I’m still a man,” he jokes.
 
-Off stage, Erik is a full-time education student. He plans on getting a PhD and going on to work with special education students. 
+Off stage, Erik is a full-time education student. He plans on getting a Ph.D. and going on to work with special education students. 
 
 He has some concerns about losing jobs because of employers finding out he’s a drag queen and deciding he’s not fit to work for them anymore. On the other hand, he’s not interested in working for a company that holds such prejudices.
 
