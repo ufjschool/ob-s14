@@ -165,7 +165,7 @@ Now I’m wide awake and not sure if I could have been dreaming. I was definitel
 
 I try to relax and slip back into my necessary state of mind, but I can’t stop thinking about the voice. For the first time tonight, I can hear my heart beating.
 ***
-**7:30 p.m.** – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: when you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
+**7:30 p.m.** – There is a popular saying that “time flies when you’re having fun.” I am realizing the opposite is true as well: When you are doing nothing, time crawls at a sickeningly slow pace. Every little sound is magnified in the midst of the silence. I have heard the elevator-like noises coming from my right, as well as some creaks and moans from both sides of me. The water fountain’s cooler never fails to startle me. 
 
 Getting a little tired of sitting and waiting, I decide to explore some other areas of the building. I walk around the hall to find the elevator. When the doors open, a loud bell dings. I would have definitely heard that from where I was sitting,so what I was hearing wasn’t the elevator. 
 
