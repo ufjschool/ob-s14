@@ -71,7 +71,7 @@ One of the drawbacks to being a fisherman is the uncertainty that comes with the
 
 The instability of his profession never stops him from living life to the fullest. When he’s not fishing, Balasis hangs out with his friends, expresses his loyalty to Chipotle Mexican Grill by ordering a burrito bowl daily and never misses an opportunity to hug a pretty girl — although, his heart belongs to one lady in particular.  
 
-His love for the sea and pride in being in fisherman is apparent to everyone he encounters — and not simply because of his passion. He sports a Hogfish tattoo on his left forearm and an entire sleeve on his right. The vivid scene boasts a net, a lobster, the ocean, a Kingfish and a Mutton snapper. 
+His love for the sea and pride in being in fisherman is apparent to everyone he encounters — and not simply because of his passion. He sports a hogfish tattoo on his left forearm and an entire sleeve on his right. The vivid scene boasts a net, a lobster, the ocean, a Kingfish and a Mutton snapper. 
 
 “Fishing can be very rewarding to someone who enjoys it," he says, "but it’s the hardest, most backbreaking work you can imagine." 
 
