@@ -82,44 +82,41 @@ The one word she used to describe her work: fascinating.
 
 Green assists in balancing the energy field in one’s body, also commonly known as the auric field. The energy system goes much deeper than just the field around them. It has an anatomy of its own.
 
-“The advantage to that, is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
+“The advantage to that is it helps to regulate the physical, mental and spiritual body to open the window of accelerated healing,” Green said. 
 
-Green received her RN at Seminole State College in 1983. She became certified in healing touch, a form of energy medicine that balances the human energy system, in 2010. The American Holistic Nurses Association accredits it. It’s used in hospitals, nursing homes and cancer centers. She also received her certification in Medical Intuitive and quantum work. She also received her certification as a life coach. 
+After graduating from Seminole State College in 1983, Green became a registered nurse. In 2010, She got certified in healing touch, a form of energy medicine that balances the human energy system. Accredited by the American Holistic Nurses Association, it's used in hospitals, nursing homes and cancer centers. Green also received her certification in medical intuition, quantum work and life coaching. 
 
 From her hometown of Northern Bronx, New York, Green saw and heard spirits since her earliest memories at 2 years old when she first realized she was sensitive to noise. By the time she was 3 or 4 years old, she started going to birthday parties and couldn’t stand the children screaming and yelling while playing. She was highly emotional and sensitive to the children around her. 
 
-She was also hypersensitive to sounds and light. Flash photography felt brighter than the sun, so she had to wear sunglasses. Her eye doctor told her that it was not likely for her to be so sensitive to light, because she had dark eyes that provided enough protection from the light.  
+She was also hypersensitive to sounds and light. Flash photography felt brighter than the sun, so she had to wear sunglasses. Her eye doctor told her it was not likely for her to be so sensitive to light because she had dark eyes that provided enough protection from the light.  
 
-When she was 10, her father past away. She thought she was being watched. By the age of 12, Green she started to see energy around things, an ability known as clairvoyance. She was also able to hear the energies around her, known as clairaudience.  
-This ability was something she understood later on in life as functioning on a higher frequency level. Today it’s referred to as higher sensory perception or HSP.
+When she was 10, her father passed away. She thought she was being watched. By the age of 12, Green started to see energy around things, an ability known as clairvoyance. She was also able to hear the energies around her, known as clairaudience. This ability was something she understood later on in life as functioning on a higher frequency level. Today it’s referred to as higher sensory perception, or HSP.
 
 “It is like taking your basic senses to the second floor,” Green said. 
 
-Green’s abilities never shook her faith. Green is Jewish, and believes in one God. In Judaism, her abilities are accepted. Judaism has the Kabbalah, a book of Jewish mysticism, and the Zohar. 
+Green’s abilities never shook her faith. Green is Jewish and believes in one God. In Judaism, her abilities are accepted. Judaism has the Kabbalah, a book of Jewish mysticism, and the Zohar. 
 
-She spoke with her rabbi a couple of years ago, and he told her one-on-one that he thought she had a gift from God and was so glad she was using it to help people. He prided her courage to go public with her work. 
+She spoke with her rabbi a couple of years ago, and he told her one-on-one that he thought she had a gift from God and was glad she was using it to help people. He prided her courage to go public with her work. 
 
 A lot of people in her family were very open-minded and knew each of them had a sixth sense in one way or another, which made it easier for her to open up about her paranormal experiences.
 
-Green does not pay much mind to the skeptics. She doesn’t just believe in what she does, she knows of what is real and validated. Skeptics give her an opportunity to show them something they might have never been open to.
+Green doesn't pay much mind to the skeptics. She doesn’t just believe in what she does, she knows of what is real and validated. Skeptics give her an opportunity to show them something they might have never been open to.
 
-“Everyone is entitled to he or her own opinion,” Green said. “I don’t want to necessarily change their belief—just their experience.”
+“Everyone is entitled to [his] or her own opinion,” Green said. “I don’t want to necessarily change their belief — just their experience.”
 
-Susan Provda, a client of Green, was not skeptical before her first visit. She was just someone in dire pain after two back surgeries looking for Green’s help. After hearing about Green from a friend, Provda decided to see her. She went to the Green’s Apopka Wellness Center in Apopka, Fla., where she was comforted by light talk about her medical history and progressive relief after visiting three more times for back therapy. 
+Susan Provda, a client of Green, wasn't skeptical before her first visit. She was just someone in dire pain after two back surgeries looking for Green’s help. After hearing about Green from a friend, Provda decided to see her. She went to the Green’s Apopka Wellness Center in Apopka, Fla., where she was comforted by light talk about her medical history and progressive relief after visiting three more times for back therapy. 
 
-Provda said the experience was very professional. She lay down as Green used a crystal pendulum to read her energy field and work her hands in her back, where she sensed blockage. Green validated moments in her life that no one would know outside of her family. Provda has felt much better, partly because she came in with an open mind and heart, making it easier for Green to communicate with her.
+Provda said the experience was very professional. She laid down as Green used a crystal pendulum to read her energy field and work her hands in her back, where she sensed blockage. Green validated moments in her life that no one would know outside of her family. Provda has felt much better, partly because she came in with an open mind and heart, making it easier for Green to communicate with her.
 
-“It’s healing, therapeutic; she listens really well,” Provda said.
+“It’s healing, therapeutic," Provda said. "She listens really well.” 
 
-While using a crystal pendulum to assess the person’s energy field, Green works with a collective of over 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. It is the oldest form of medicine, she said.
-
-“It is the oldest form of medicine,” Green said. "It is the ultimate cellphone connection."
+While using a crystal pendulum to assess the person’s energy field, Green works with a collective of more than 20 angels and guides with all her senses to tune in for information on the healing process of her patients. The human energy system is colored in chakras, energy transformers that feed the circle of light around and through the body. The colors and the frequencies of the chakras are aligned with the colors of the rainbow. If a chakra is blocked, it can affect the complete circuit. She uses her hands to palpate where the imbalances are in the body indicated by the pendulum moving side-to-side. When the field was open and balanced, the pendulum would move in a circular motion. It is the oldest form of medicine, she said.
 
 Green also does grief work because many departed loved ones make their presence known to her to help their families who are still grieving.
 
-Whether it is grief work or a serious illness, many people see Green as a last resort to maintain their health in a natural way. Energy work fits with western methods, because it accelerates the healing process of someone going through medical treatments. It balances their systems quicker to decrease their medication dosages. She advises her clients to continue all prescribed medication and to inform the doctors if they note any changes. 
+Whether it is grief work or a serious illness, many people see Green as a last resort to maintain their health in a natural way. Energy work fits with western methods because it accelerates the healing process of someone going through medical treatments. Also it balances their systems quicker to decrease their medication dosages. She advises her clients to continue all prescribed medication and to inform the doctors if they note any changes. 
 
-She is now the author of "Getting to Know You: Guided Pearls of Wisdom for a More Soulful Experience." 
+She is also the author of "Getting to Know You: Guided Pearls of Wisdom for a More Soulful Experience." 
 
 “The Spirit moved me,” Green said.
 
@@ -129,6 +126,6 @@ A type of nonproductive thought pattern is experienced by people who live in fea
 
 The most powerful part of our bodies is our higher consciousness. It is soul-driven and will not steer us wrong if we learn to tune into it. The energy field compromises everything: the mind, body and soul. It takes care of our physical and non-physical, she said. A type of nonproductive thought pattern is experienced by people who live in fear from past experiences that are brought into the present and future. 
 
-Green is working on her certification as a Certified Holistic Nurse through the American Holistic Nurses Association. On her down time, Green works at the Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband, Adlai; three children, Ian, Arielle and Alexa; and her 85-year-old mother, Harriet Storyk. She anticipates writing another book in a couple of years.
+Green is working on her certification as a certified holistic nurse through the American Holistic Nurses Association. On her downtime, Green works at the Wellness Center that she and her husband have owned for almost 35 years. She also enjoys the company of her husband, Adlai; three children, Ian, Arielle and Alexa; and her 85-year-old mother, Harriet Storyk. She anticipates writing another book in a couple of years.
 
 “We are amazing beings with all the answers within ourselves to lead a healthy and productive life,” Green said. 
