@@ -56,7 +56,7 @@ Stevens continues recounting his journey to Finca.
 
 “I graduate college, so what am I going to do? Well, I tried to save the world,” Stevens says. “I tried to teach about having natural systems, so we can clean up all this waste. Then, I got really sick.”
 
-He contracted dysentery and Giardia when taking a year off in Guatemala and Nicaragua. In 2002, Stevens returned to Gainesville, purchasing 20 acres of land for $42,000. To supplement his small income, he picked up work with Florida Wildlife Control, dealing with forest fires, and he started renting out his place in St. Augustine, Fla. He built Finca Mycol from a trash dump. Dilapidated sheds got new life from recycled materials.
+He contracted dysentery and Giardia when taking a year off in Guatemala and Nicaragua. In 2002, Stevens returned to Gainesville, purchasing 20 acres of land for $42,000. To supplement his small income, he picked up work with Florida Fish and Wildlife Conservation Commission, dealing with forest fires, and he started renting out his place in St. Augustine, Fla. He built Finca Mycol from a trash dump. Dilapidated sheds got new life from recycled materials.
 
 “Instead of survivalism, I’m doing 'thrivalism.' What we’re doing is 'thrivalism,'” Stevens says using a term a friend coined. “We’re kicking ass, having fun and living a more enriching life.”
 
@@ -70,7 +70,7 @@ Byerly, a Democrat, noticed the environmentally focused mindset even before gett
 
 “College towns tend to be a little more politically progressive," Byerly says. "The history of Gainesville has always had a strong counterculture scene, going back to the '50s and '60s. It also is a government town. It’s a place where there are a lot of federal and state government installations. We have a highly educated diverse citizenry and progressive politics.”
 
-GRU brought the city national attention with the nation’s first solar feed-in-tariff program on Feb. 5, 2009. Byerly, as an Alachua County commissioner, didn’t have any involvement in the plan. Gainesville county commissioners suspended the program this year. 
+GRU brought the city national attention with the nation’s first solar feed-in-tariff program on Feb. 5, 2009. Byerly, as an Alachua County commissioner, didn’t have any involvement in the plan. The Gainesville City Commission suspended the program this year. 
 
 It modeled itself after the successful FIT plans in Europe where companies bid on solar energy contracts, generate electricity and sell excess power back to the power utility. In theory, it would be a boon for Gainesville. In practice, it was the ol' college try.
 
@@ -120,7 +120,7 @@ With the rain stopping, he picks up a green leaf. It looks like any normal leaf.
 
 He must really know his stuff now, I think to myself. Our time together dies down, as does the rain. Bakr trails behind me, snapping photos. Suddenly lightning and thunder force us into a brisk walk and then a run into his living quarters. 
 
-I put away my notebook once inside. I want to listen to the knowledge. I want to hear more stories about black bears, duck, deer, otters and skunks venturing onto the property. He opens a botany book to a page on earambola, which is science talk for a central China plant. His favorite read is the famous ethno-botany book “One River” by Wade Davis. Between tending to his farm and dealing with electrical issues, there isn’t much free time. He doesn’t spend it watching "House of Cards." He reads botany books.
+I put away my notebook once inside. I want to listen to the knowledge. I want to hear more stories about black bears, duck, deer, otters and skunks venturing onto the property. His favorite read is the famous ethnobotany book “One River” by Wade Davis. Between tending to his farm and dealing with electrical issues, there isn’t much free time for Stevens. He doesn’t spend it watching "House of Cards." He reads botany books.
 
 He reveals he was a nuclear power operator in the Navy for six years and likes how environmentally friendly nuclear energy is when done right. This man, at 44, is full of stories. I’m exhausted.
 
