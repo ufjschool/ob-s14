@@ -34,7 +34,7 @@ Before she made a full-recovery, along with running personal bests on the track 
 
 So powerful, in fact, sports counseling and psychology has only recently become a profession of its own. Many Division I schools have yet to hire a sports counselor directly affiliated with their athletic departments. Why? The negative stigma that comes with counseling could offer one answer.
 
-Jaime Jenkins, a sports counselor affiliated with the University of Florida, didn’t even know her profession existed before coming to UF, where she studied exercise science. Now, with a PhD in mental health counseling, she owns a private practice in Gainesville and works primarily with UF student-athletes.
+Jaime Jenkins, a sports counselor affiliated with the University of Florida, didn’t even know her profession existed before coming to UF, where she studied exercise science. Now, with a Ph.D. in mental health counseling, she owns a private practice in Gainesville and works primarily with UF student-athletes.
 
 “We’re investing a lot more and expecting a lot more of our student-athletes,” Jenkins said. “If we don’t support them to balance that out, we’re going to see more anxiety, more depression.”
 
