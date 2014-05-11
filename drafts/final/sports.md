@@ -4,7 +4,7 @@ DEK: Athletes + Energy
 
 For some University of Florida athletes, energy is the electric buzz of techno music. For others, it’s caffeine coursing through their veins. Energy is a green Gatorade bottle or a protein bar. It’s feeling cold water sliding down your throat during an afternoon practice or the smell of a sizzling steak at dinnertime. Energy is that moment of complete mental and physical suspension before the gun goes off, a whistle sounds or the ball is passed. It’s a team prayer, the words of a coach, the hopeful cries of fans. For athletes at UF, just the mere sight of an orange and blue jersey is enough to power them up, excite their spirits and send them flying full-force into the performances of their lifetimes.
 
-Talent takes an athlete only so far. Behind the record-setting times, the slam dunks, the "Sports Center" Top 10-worthy plays and the perfect 10.0s lies months of preparation with a staff that stands ready to infuse energy into both the bodies and the minds of these athletes. Like an actor on stage, an individual athlete collaborates with a team of backstage managers in order to give their best possible performance on gameday.
+Talent takes an athlete only so far. Behind the record-setting times, the slam dunks, the "SportsCenter" Top-10-worthy plays and the perfect 10.0s lies months of preparation with a staff that stands ready to infuse energy into both the bodies and the minds of these athletes. Like an actor on stage, an individual athlete collaborates with a team of backstage managers in order to give their best possible performance on gameday.
 
 We sat down with some of UF's top-performing athletes and the people who impact them most. 
 
@@ -30,7 +30,7 @@ Intimidating? Matt Thompson thought so.
 Thompson had swum competitively since he was 5 years old, attending and placing at multiple Junior Olympic meets. Yet, the sports management junior still felt too inadequate to wear orange and blue. 
 “I was always looking at the [UF swimming] record boards and the wall of champions,” the now 21-year-old said. “They’ve done all these things…. I’m not that good. There’s no way. That was just kind of my mindset at the time.”
 
-But the support from his club coach, Cashel Mack, quickly uprooted any of his self-doubt. After he placed second in the 200-yard Individual Medley and third in the 500-yard freestyle at the FHSAA Championship meet his junior year of high school on November 13, 2009, the swimmer's doubts were put to rest. Mack pulled him out of the pool at his next practice and reassured him of his talent as an elite swimmer and his untapped potential. 
+But the support from his club coach, Cashel Mack, quickly uprooted any of his self-doubt. After he placed second in the 200-yard Individual Medley and third in the 500-yard freestyle at the FHSAA Championship meet his junior year of high school on Nov. 13, 2009, the swimmer's doubts were put to rest. Mack pulled him out of the pool at his next practice and reassured him of his talent as an elite swimmer and his untapped potential. 
 
 “She told me, ‘Look, you really can do this, and if you want to be serious with swimming and be the best you can be, Florida is the option,'” Thompson recalled. “From that moment, it was Florida No. 1 all the way.”
 
